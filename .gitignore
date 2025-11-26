@@ -1,0 +1,33 @@
+# PDFs sources (fichiers trop volumineux pour GitHub)
+sources/*.pdf
+sources/**/*.pdf
+
+# Fichiers temporaires
+*.tmp
+*.temp
+*.bak
+*.swp
+*.swo
+*~
+
+# Fichiers système
+.DS_Store
+Thumbs.db
+desktop.ini
+
+# Éditeurs
+.vscode/
+.idea/
+*.sublime-*
+
+# Logs
+*.log
+
+# Fichiers de compilation
+*.pyc
+__pycache__/
+
+# Environnements virtuels
+venv/
+env/
+.venv/
