@@ -1,0 +1,52 @@
+# Fichiers systèmes
+.DS_Store
+Thumbs.db
+desktop.ini
+
+# Fichiers temporaires
+*.tmp
+*.temp
+~$*
+*.swp
+*.swo
+*~
+
+# Dossiers de sauvegarde
+backup/
+*.backup
+
+# Fichiers personnels
+notes_privees/
+brouillons/
+
+# Fichiers volumineux (à ajouter via Git LFS si nécessaire)
+*.zip
+*.rar
+*.7z
+*.tar.gz
+
+# Fichiers de configuration locaux
+.vscode/
+.idea/
+*.code-workspace
+
+# Logs
+*.log
+logs/
+
+# Node modules (si utilisation future de Node.js)
+node_modules/
+package-lock.json
+
+# Python (si utilisation future de scripts Python)
+__pycache__/
+*.py[cod]
+*$py.class
+.venv/
+venv/
+env/
+
+# Fichiers de base de données locales
+*.db
+*.sqlite
+*.sqlite3
