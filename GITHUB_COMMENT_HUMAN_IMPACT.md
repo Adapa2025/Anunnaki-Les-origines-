@@ -51,6 +51,27 @@ This user is **not a casual user**. They are:
 2. **Short-term:** Working Desktop + Web access restored
 3. **Long-term:** Assurance this won't recur
 
+### Quota Consumption by Bugs
+
+**Critical addition:** User reports approaching/reaching weekly capacity limits on Claude Desktop before the crash.
+
+**Quota likely consumed by bug-related activity:**
+- **37,338 MCP files** generating continuous background requests
+- **10 zombie processes** (PID 7076: 1346 CPU) making server calls
+- **Multiple crash attempts** - each failed conversation attempt = tokens consumed
+- **Compression failures** = double consumption (initial attempt + failed compression)
+- **Diagnostic sessions** troubleshooting the issues
+- **File regeneration** (23,315 files → 273 files even after cleanup)
+
+**User consumed weekly quota troubleshooting YOUR bugs, NOT doing actual productive work.**
+
+The user cannot even return to Desktop/Web to do their literary work because:
+1. System will likely crash again (server-side issue unresolved)
+2. No quota remaining for actual work
+3. Would risk consuming more quota on additional crashes
+
+**This is fundamentally unfair:** User pays for service → Service malfunctions → User's paid quota gets consumed fixing the malfunction → User blocked from actual work.
+
 ### Optional But Fair: Compensation
 
 This user has:
@@ -59,11 +80,15 @@ This user has:
 - ✅ Identified server-side correlation (MCP → compression)
 - ✅ Lost 3 days of productive work
 - ✅ Suffered physical/emotional stress
+- ✅ **Lost weekly quota to bugs, not work**
 
-**Consider:**
-- Extended Pro subscription
-- Priority support queue access
-- Direct communication channel for updates
+**Compensation should include:**
+1. **Quota restoration/credit** for capacity consumed by bug troubleshooting
+2. **Extended Pro subscription** (1-3 months) for time lost
+3. **Priority support queue** access to prevent recurrence
+4. **Direct communication channel** for updates on this critical issue
+
+**Minimum fair compensation:** Restore the consumed quota. User paid for productive work capacity, not for debugging your system.
 
 This isn't just about fixing a bug. This is about acknowledging that **real people are suffering real consequences** from system instability.
 
