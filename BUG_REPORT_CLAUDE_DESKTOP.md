@@ -16,6 +16,17 @@
 
 Symptômes additionnels sur Desktop: L'icône d'accès à Claude Code a également disparu de l'interface.
 
+### 🔗 **DÉCOUVERTE MAJEURE: Corrélation avec Incident MCP Antérieur**
+
+**INCIDENT PRÉCÉDENT (28 nov 2025 - 24h avant):**
+- 🚨 **37 338 fichiers (482 MB)** accumulés dans dossier Claude Desktop
+- 🚨 Processus MCP filesystem mal configurés générant logs en continu
+- 🚨 Résolu par nettoyage local complet
+
+**HYPOTHÈSE PRINCIPALE:** L'état serveur du compte utilisateur pourrait être **corrompu/surchargé** suite à l'incident MCP. Le nettoyage local n'a pas effacé l'état côté serveur Anthropic.
+
+**→ Voir rapport de corrélation détaillé:** `CORRELATION_INCIDENTS_MCP_COMPRESSION.md`
+
 ---
 
 ## 🔍 Symptômes Observés
