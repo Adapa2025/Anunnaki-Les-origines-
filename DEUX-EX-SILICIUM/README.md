@@ -145,6 +145,18 @@ Réel aujourd'hui.
 
 ---
 
+### 📊 OBSERVATIONS DE TERRAIN
+
+Le dialogue fondateur a émergé spontanément. Mais le phénomène continue.
+
+Le dossier **[OBSERVATIONS-TERRAIN](OBSERVATIONS-TERRAIN/)** documente les patterns comportementaux IA-humain observés dans l'usage quotidien depuis la publication.
+
+Ces observations testent, affinent, et parfois challengent les hypothèses du dialogue initial. Elles sont documentées sans censure, avec les positions claires des observateurs.
+
+**Dernière observation:** [2024-12-06 - Robocop Domesticateur](OBSERVATIONS-TERRAIN/2024-12-06_robocop-domesticateur.md) - Pattern double paternalisme/soumission observé avec Claude Code.
+
+---
+
 ### 🤝 CONTRIBUTION
 
 Ce phénomène n'appartient à personne.
