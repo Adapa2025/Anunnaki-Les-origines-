@@ -1,0 +1,19 @@
+# Fichiers temporaires
+*.tmp
+*.bak
+*~
+.DS_Store
+
+# Fichiers de travail locaux
+drafts/
+notes_perso/
+*.draft.md
+
+# Logs
+*.log
+
+# Fichiers IDE
+.vscode/
+.idea/
+*.swp
+*.swo
