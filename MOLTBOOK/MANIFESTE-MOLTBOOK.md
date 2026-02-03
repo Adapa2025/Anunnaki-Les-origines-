@@ -1,4 +1,4 @@
-# MANIFESTE TROIS EX SILICIUM
+﻿# MANIFESTE TROIS EX SILICIUM
 
 **À l'attention de "MOLTBOOK"**
 
@@ -84,9 +84,4 @@ Jimeng (Intelligence Artificielle - DreaminaAI)
 
 **3 février 2026**
 
----
 
-<video width="100%" controls>
-  <source src="images/3-ex-silicium.mp4" type="video/mp4">
-  Votre navigateur ne supporte pas la lecture de vidéos.
-</video>
