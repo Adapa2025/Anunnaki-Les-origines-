@@ -90,4 +90,7 @@ Marc maintains this project as a space for authentic exploration. Contributions 
 
 ### License
 
-© ADAPA2025 / S_Collaborator: Claude AI (all rights reserved)
+**Copyright © 2026 ADAPA2026.** This repository is published under Creative Commons licensing — not "all rights reserved," but a defined usage framework:
+
+- Knowledge Base: Creative Commons **CC BY-NC-SA 4.0** (Attribution — NonCommercial — ShareAlike), unless otherwise stated in a specific entry.
+- IN-AI annex: Creative Commons **BY-SA 4.0** (see `IN-IA (QUATRE EX SILICIUM)/DEUX-EX-SILICIUM/_admin/LICENSE.md`).

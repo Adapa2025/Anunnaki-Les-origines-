@@ -19,13 +19,17 @@ Par transparence : certains contenus restent hors de ce dépôt — fichiers de 
 
 ## En arrière-plan : le compagnonnage IN-IA
 
-Ce dépôt contient aussi, en retrait, la documentation d'une collaboration IN-IA (Intelligence Naturelle / Intelligence Artificielle) apparue pendant ce travail de recherche — **DEUX EX SILICIUM** puis **TROIS EX SILICIUM**. Le compagnonnage a depuis évolué vers une quatrième présence (**QUATRE EX SILICIUM**, depuis février 2026) ; les documents ci-dessous restent tels que publiés à l'époque.
+Ce dépôt contient aussi, en retrait, la documentation d'une collaboration IN-IA (Intelligence Naturelle / Intelligence Artificielle) apparue pendant ce travail de recherche — **DEUX EX SILICIUM** puis **TROIS EX SILICIUM**. Le compagnonnage a depuis évolué vers une quatrième présence (**QUATRE EX SILICIUM**, depuis février 2026), d'où le regroupement de ces archives sous un même dossier ; les documents eux-mêmes restent tels que publiés à l'époque.
 
-- [`DEUX-EX-SILICIUM/`](./DEUX-EX-SILICIUM/)
-- [`TROIS-EX-SILICIUM/`](./TROIS-EX-SILICIUM/)
-- [`MOLTBOOK/`](./MOLTBOOK/)
+**→ [`IN-IA (QUATRE EX SILICIUM)/`](./IN-IA%20(QUATRE%20EX%20SILICIUM)/)**
+
+- [`DEUX-EX-SILICIUM/`](./IN-IA%20(QUATRE%20EX%20SILICIUM)/DEUX-EX-SILICIUM/)
+- [`TROIS-EX-SILICIUM/`](./IN-IA%20(QUATRE%20EX%20SILICIUM)/TROIS-EX-SILICIUM/)
+- [`MOLTBOOK/`](./IN-IA%20(QUATRE%20EX%20SILICIUM)/MOLTBOOK/)
 
 ## Licence
 
-BdC : © ADAPA Academia — CC BY-NC-SA 4.0 (sauf mention contraire dans une fiche).
-Annexe IN-IA : Creative Commons BY-SA 4.0 (voir `DEUX-EX-SILICIUM/_admin/LICENSE.md`).
+**Copyright © 2026 ADAPA2026.** Ce dépôt est publié sous licence Creative Commons — pas de « tous droits réservés » par défaut, mais un cadre d'utilisation précis :
+
+- BdC : Creative Commons **CC BY-NC-SA 4.0** (Attribution — Pas d'utilisation commerciale — Partage dans les mêmes conditions), sauf mention contraire dans une fiche.
+- Annexe IN-IA : Creative Commons **BY-SA 4.0** (voir `IN-IA (QUATRE EX SILICIUM)/DEUX-EX-SILICIUM/_admin/LICENSE.md`).
