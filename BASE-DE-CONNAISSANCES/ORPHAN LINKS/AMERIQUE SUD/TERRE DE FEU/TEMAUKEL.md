@@ -1,0 +1,3 @@
+# TEMÁUKEL
+
+Être suprême de la mythologie Selknam (Terre de Feu) — dieu primordial, a toujours existé, non anthropomorphe, résidant dans le ciel est (Wintek). Trop distant pour être adoré directement — délègue à Kenos pour organiser la Terre. Seul vrai "dieu" dans la cosmologie Selknam (les autres entités sont des howenh = ancêtres mythologiques). Documenté principalement par Martin Gusinde et Anne Chapman. Connexion structurelle : même archétype que Watauinewa (Yamana), Ngenechen (Mapuche avant syncrétisme), Ein Sof (kabbaliste), Brahman (védantique) — principe premier transcendant non-anthropomorphe qui ne s'implique pas directement dans le monde.

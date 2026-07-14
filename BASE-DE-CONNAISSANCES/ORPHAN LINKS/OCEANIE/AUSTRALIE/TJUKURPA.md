@@ -1,0 +1,3 @@
+# TJUKURPA
+
+Terme du peuple Anangu (Pitjantjatjara/Yankunytjatjara, Australie centrale) pour le Temps du Rêve — équivalent du terme Arrernte *Alcheringa*. Plus précis que la traduction *"Dreamtime"* : désigne simultanément la loi (*Law*), la cosmologie, les récits des ancêtres, et les obligations des vivants envers le pays et la communauté. Pour les Anangu, Tjukurpa n'est pas une croyance ou une religion optionnelle — c'est le fondement de toute existence. Uluru (Ayers Rock) est un site majeur du Tjukurpa Anangu — chaque formation rocheuse encode un épisode des récits ancestraux. Le parc national d'Uluru-Kata Tjuta est cogéré par les Anangu selon les principes du Tjukurpa depuis 1985.

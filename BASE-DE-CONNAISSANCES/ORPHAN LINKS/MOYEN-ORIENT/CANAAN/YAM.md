@@ -1,0 +1,3 @@
+# YAM (Yam-Nahar)
+
+Dieu cananéen/ougaritique de la mer et des fleuves — "Mer-Fleuve". Concurrent de Baal pour la royauté des dieux, favorisé initialement par El. Vaincu par Baal — sa défaite encode cosmologiquement la victoire de l'ordre sur le chaos aquatique primordial. Connexion directe avec Tehom hébreu (Genèse 1:2 — "les ténèbres couvraient l'abîsse") — même racine sémitique que Tiamat babylonienne (*tiamat* → *tehom*). L'histoire de Yam comparée à l'Enûma Eliš : Yam ≠ Tiamat (Yam perd mais n'est pas démembré pour créer le monde). Connexion ADAPA : dieu des eaux chaotiques primordiales vaincu par le dieu ordonnateur = archétype universel — Tiamat/Marduk (Babylone), Vritra/Indra (Inde védique), Apophis/Rê (Égypte), Jörmungandr/Thor (Nordique).

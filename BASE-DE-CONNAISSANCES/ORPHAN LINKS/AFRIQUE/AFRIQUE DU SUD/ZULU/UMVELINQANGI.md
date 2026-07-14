@@ -1,0 +1,4 @@
+**Placeholder — ORPHAN LINKS/AFRIQUE DU SUD**
+**Sujet :** UMVELINQANGI — Dieu du ciel et du tonnerre, "Celui qui était avant toute chose" (Zulu)
+**Lié à :** [[LIEUX MYTHIQUES/AFRIQUE/AFRIQUE DU SUD/UTHLANGA WIKI-NOTES|UTHLANGA WIKI-NOTES]] · [[LIEUX MYTHIQUES/AFRIQUE/AFRIQUE DU SUD/PHANSI WIKI-NOTES|PHANSI WIKI-NOTES]]
+**Amorce :** Umvelinqangi ("Celui qui était avant toute chose") est l'entité transcendante supérieure dans la cosmologie zulu — dieu du ciel, du tonnerre et de l'éclair. Il envoie la graine de vie qui germe en Uthlanga, descend des cieux et s'unit au marécage primordial. Père cosmique dont l'union avec Uthlanga génère Unkulunkulu et l'humanité. Distinct d'Unkulunkulu : là où Unkulunkulu est le créateur immanent, Umvelinqangi est le principe transcendant. Sources : Olupona, *African Religions* (2014) ; Callaway (1870).

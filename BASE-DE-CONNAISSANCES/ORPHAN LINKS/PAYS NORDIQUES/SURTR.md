@@ -1,0 +1,3 @@
+# SURTR
+
+Géant de feu de Muspellsheim dans la mythologie nordique. Gardien de Muspellsheim depuis les origines du cosmos — son nom signifie "Noir" en vieux norrois (*svartr*). Lors du Ragnarök, mène les fils de Muspell sur Bifröst (qui s'effondre sous leur passage), combat Freyr (qui meurt, n'ayant plus son épée magique), puis répand ses flammes sur les neuf mondes — incendiant le cosmos entier. Connexion ADAPA : géant/force primordiale de feu destructeur-créateur = même archétype que Agni védique (feu cosmique), Inti inca (soleil destructeur/créateur), le feu comme force de régénération cosmique. Surtr détruit pour que Gimlé et le monde nouveau puissent émerger.

@@ -1,0 +1,4 @@
+**Placeholder — ORPHAN LINKS/MADAGASCAR**
+**Sujet :** ZANAHARY — Dieu créateur suprême du ciel, propriétaire des âmes (Madagascar/Merina)
+**Lié à :** [[LIEUX MYTHIQUES/AFRIQUE/ILES DE L'OCEAN INDIEN/MADAGASCAR/TANINDRAZANA WIKI-NOTES|TANINDRAZANA WIKI-NOTES]]
+**Amorce :** Zanahary (aussi Andrianahary, Andriananahary) est le ciel personnifié et dieu créateur suprême malgache — autocréé, androgyne ou sans genre, omniprésent. Conclut un pacte avec Ratovantany pour créer l'humanité : Zanahary donne l'âme (fanahy), Ratovantany le corps (argile). À la mort, l'âme retourne à Zanahary dans le ciel, le corps à Ratovantany dans la terre. Couteau = l'arc-en-ciel. Fils Andrianerinerina. La reine Ranavalona I a promu son culte contre le christianisme. Sources : Wikipedia EN (Zanahary) ; LovaRanzana.wordpress.com.

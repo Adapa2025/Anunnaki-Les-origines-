@@ -1,0 +1,3 @@
+# AL-UZZA
+
+"La Plus Puissante" — déesse arabe préislamique, l'une des trois grandes déesses de La Mecque avec Al-Lat et Manat. Associée à la fertilité et à la planète Vénus. Invoquée avec Hubal pour la protection et la victoire avant toute guerre. Mentionnée dans le Coran (Sourate 53:19) comme fausse déesse à rejeter. Son sanctuaire : Nakhla (entre La Mecque et Taïf). Connexion ADAPA : déesse de Vénus/fertilité/guerre = même archétype qu'Inanna/Ishtar sumérienne (Vénus, fertilité, guerre), Anat cananéenne (guerre, sœur du dieu de la pluie), Aphrodite/Vénus grecque/romaine. L'association Vénus-fertilité-guerre est l'un des archétypes féminins les plus constants du corpus ADAPA, du Proche-Orient à l'Arabie.

@@ -1,0 +1,3 @@
+# BIERI
+
+Culte des ancêtres Fang — système de vénération centré sur la conservation et le transport des reliques osseuses (crânes, mâchoires, dents, petits os) des ancêtres importants dans une boîte cylindrique en écorce (*nsek bieri*). Une figurine sculptée (*eyema byeri* ou *nlo bieri*) surmonte la boîte et protège les reliques du regard des femmes et des non-initiés. Les reliques ancestrales sont consultées avant les chasses, migrations, guerres. Le mode de vie migratoire Fang a rendu impossible les sanctuaires fixes — les ancêtres voyagent avec les vivants. Bieri a fusionné avec le Bwiti au XXe siècle.

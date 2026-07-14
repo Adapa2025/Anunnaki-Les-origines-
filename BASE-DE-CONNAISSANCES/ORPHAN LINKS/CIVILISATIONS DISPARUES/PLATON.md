@@ -1,0 +1,3 @@
+# PLATON
+
+Philosophe grec (~428-348 av. J.-C.) — fondateur de l'Académie d'Athènes, auteur des *Dialogues*. Seul auteur antique ayant mentionné l'Atlantide — dans le *Timée* et le *Critias* (~360 av. J.-C.). L'Atlantide y sert de dispositif philosophique pour illustrer la décadence des sociétés idéales corrompues par l'hybris. Élève de Socrate, maître d'Aristote. Œuvres majeures : *La République*, *Le Banquet*, *Phédon*, *Phèdre*, *Parménide*, *Timée*, *Critias* (inachevé). Le procédé rhétorique platonicien de présenter le fictif comme réel a "égaré ceux qui cherchent naïvement dans le Critias et le Timée une réalité historique" (Hervé Duchêne, Université de Bourgogne).

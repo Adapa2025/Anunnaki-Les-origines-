@@ -1,0 +1,3 @@
+# ROIS PANDYA
+
+Dynastie royale dravidienne du Tamil Nadu (Inde du Sud) — l'une des trois grandes dynasties tamoules classiques avec les Chola et les Chera. Les Pandya régnaient sur la région de Madurai. Dans la tradition de Kumari Kandam, ce sont les rois Pandya qui fondèrent les trois Sangams (académies royales), les deux premiers sur des territoires aujourd'hui engloutis par la mer. La longueur légendaire de leurs règnes (plusieurs millénaires pour les deux premiers Sangams) les place dans un temps mythique plutôt qu'historique. Historiquement documentés à partir du IIIe siècle av. J.-C. environ (mentions dans Mégasthène, ambassadeur d'Asoka). La stèle de Mesha ne les mentionne pas — leur historicité ancienne est distincte des traditions légendaires.

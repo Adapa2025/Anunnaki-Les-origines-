@@ -1,0 +1,3 @@
+# COORONG
+
+Lagon côtier de 130 km en Australie-Méridionale — séparé de l'océan Austral par les dunes de Younghusband Peninsula. Site sacré central de la cosmologie Ngarrindjeri. Zone de pêche ancestrale, lieu de passage de la geste de Ngurunderi. Classé Ramsar (zone humide d'importance internationale). La Coorong a été formée dans sa forme actuelle lors de la montée des eaux post-glaciaire (~10 000 av. J.-C.) — les traditions orales Ngarrindjeri encodent cette transformation géologique. Film australien culte : *The Last Wave* (Peter Weir, 1977) — thriller tourné dans des communautés aborigènes de Coorong.

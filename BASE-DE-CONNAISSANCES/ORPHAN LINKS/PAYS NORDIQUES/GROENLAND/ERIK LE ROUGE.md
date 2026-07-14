@@ -1,0 +1,3 @@
+# ERIK LE ROUGE
+
+Erik Thorvaldsson, dit Erik le Rouge (~950-1003 ap. J.-C.) — explorateur viking norvégien-islandais. Banni d'Islande pour meurtre (982), explore le Groenland lors de son exil (982-985). Fonde les deux premières colonies européennes au Groenland (986) : colonie de l'Est (Eystribyggð) et de l'Ouest (Vestribyggð). Nomme délibérément la terre "Groenland" pour attirer des colons — manipulation sémantique documentée dans la Saga d'Erik le Rouge. Son fils Leif Erikson sera le premier Européen à atteindre l'Amérique du Nord (Vinland, ~1000 ap. J.-C.). La colonisation viking du Groenland dure ~500 ans avant la disparition mystérieuse des colons (~1408-1450).

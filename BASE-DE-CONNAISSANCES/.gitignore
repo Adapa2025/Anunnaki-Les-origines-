@@ -1,0 +1,37 @@
+# Fichiers Obsidian internes — jamais publics
+.obsidian/
+.trash/
+.smart-env/
+.env
+
+# Mémoire de travail Claude / protocoles internes — contient la déclaration de non-consentement
+MEMOIRE_CLAUDE_BDC/
+
+# Contenu géopolitique vivant, non publié pour l'instant
+ACTUALITÉ/GUERRES/
+
+# Corpus Harmonyum — sourcing tiers non clarifié, contenu non vérifiable indépendamment
+HARMONYUM/
+PROTOCOLE DE SURVIE FACE AUX ANUNNAKI.md
+
+# Dossiers de sources tierces brutes (clippings web/vidéo, textes copiés en attente de traitement)
+Clippings/
+LA SOURCE/SOURCES A EXPLORER/
+BIBLE/HEBREUX, YAWHE/YAWHE/YHWH/SOURCES A EXPLORER/
+LES DÉMONS ET LES ANGES/LES DÉMONS/SOURCES/
+La Terre, les différentes ères et les cataclysmes/4 Déluges/AUTRES SOURCES/
+Chronologie des civilisations/ANCIENNNES CIVILISATIONS/LA TARTARIE/TARTARIE clipping/
+LES SYMBOLES/SOLEIL NOIR clipping/
+
+# Vidéos et audio — trop volumineux pour GitHub sans Git LFS (plusieurs fichiers > 100 Mo), à réévaluer plus tard
+*.mp4
+*.mov
+*.avi
+*.mkv
+*.wav
+*.mp3
+
+# Artefacts de copie (fichiers temporaires rsync interrompus, verrous Office) — jamais du contenu réel
+.*
+!.gitkeep
+!.gitignore

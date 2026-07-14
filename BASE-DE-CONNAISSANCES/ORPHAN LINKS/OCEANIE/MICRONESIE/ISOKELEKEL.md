@@ -1,0 +1,3 @@
+# ISOKELEKEL
+
+Demi-dieu héros de Pohnpei — fils de Nahnsapwe (dieu du tonnerre) et d'une parente. Nom signifiant "roi brillant" ou "noble brillant". Mène 333 hommes, femmes et enfants depuis Kosrae (~1400-1500 ap. J.-C.) pour renverser la tyrannie des Saudeleur à Nan Madol. Établit le système des *nahnmwarki* (chefs régionaux) — moins centralisé que les Saudeleur mais toujours hiérarchique. Ce système est toujours en vigueur à Pohnpei en 2026. Isokelekel est commémoré lors du festival annuel des ignames (Yam Festival). Son origine divine (père = dieu du tonnerre) et son arrivée maritime de Kosrae = récit fondateur classique du héros libérateur venu d'ailleurs.

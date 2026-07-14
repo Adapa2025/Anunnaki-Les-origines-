@@ -1,0 +1,3 @@
+# SANGAM
+
+Assemblées ou académies royales de poètes et de savants tamouls — terme désignant trois périodes ou institutions légendaires dans la tradition tamoule. Le premier Sangam se serait tenu à Tenmadurai (Madurai du sud, engloutie par la mer) pendant 4 400 ans. Le deuxième à Kapatapuram (également engloutie). Le troisième à Madurai actuelle — le seul dont les textes ont survécu (corpus Sangam, ~IIe s. av. J.-C. — IIe s. ap. J.-C.). Ces académies sont présentées comme présidées par les rois Pandya, avec des membres incluant des dieux et des sages. La destruction des deux premiers Sangams par la mer constitue la forme narrative principale à travers laquelle la tradition tamoule conserve la mémoire des terres englouties. Base de la tradition de Kumari Kandam.

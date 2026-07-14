@@ -1,0 +1,3 @@
+# ŌKUNINUSHI
+
+Ōkuninushi no Mikoto (大国主命), "Grand Maître du Grand Pays" — héros mythologique, descendant de Susanoo. Descend vivant dans [[NE-NO-KUNI WIKI-NOTES|Ne-no-Kuni]] et subit les épreuves imposées par Susanoo (chambre de serpents, chambre de guêpes et mille-pattes, champ incendié). Aidé par Suserihime (fille de Susanoo), survit et s'enfuit avec les objets magiques de Susanoo. Reconnu par Susanoo comme souverain du monde terrestre (*Ashihara no Nakatsukuni*). Cède ensuite le gouvernement du monde terrestre aux émissaires d'Amaterasu (*kuni-yuzuri*, "cession du pays"). Sources : *Kojiki* (712), *Nihon Shoki* (720).

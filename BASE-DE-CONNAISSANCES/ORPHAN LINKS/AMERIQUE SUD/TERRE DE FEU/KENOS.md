@@ -1,0 +1,3 @@
+# KENOS
+
+Premier howenh (ancêtre-force cosmique) de la mythologie Selknam — envoyé par Temáukel depuis le ciel vers la Terre primordiale pour l'organiser et créer les ancêtres mythologiques qui façonneraient le monde. Terraformeur délégué. Connexion ADAPA centrale : Kenos envoyé par Temáukel pour organiser la Terre = même structure narrative que les Apkallu envoyés par Enki pour civiliser l'humanité. Être primordial (Temáukel/Enki) → délégué terraformeur (Kenos/Apkallu) → humanité organisée. Cette structure — être suprême distant qui envoie un intermédiaire actif pour mettre de l'ordre dans le monde — est transversale au corpus ADAPA.

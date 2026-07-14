@@ -1,0 +1,3 @@
+# MAURITIA
+
+Micro-continent granitique submergé sous les îles Mascareignes (La Réunion, Maurice, Rodrigues) dans l'océan Indien — fragment de la dislocation du Gondwana, submergé il y a environ 60-85 millions d'années BP. Sa découverte a été annoncée en 2013 par une équipe internationale (Lewis Ashwal et al., *Nature Geoscience*) à partir de zircons anciens (~3 milliards d'années) trouvés dans des laves volcaniques de Maurice. Mauritia est parfois mentionnée dans les médias populaires comme une "confirmation" de la Lémurie — confusion entre deux réalités sans rapport : Mauritia est un fragment de croûte continentale vieux de dizaines de millions d'années, submergé bien avant l'apparition de l'Homo sapiens et a fortiori de toute civilisation.

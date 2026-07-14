@@ -1,0 +1,3 @@
+# FENRIR
+
+Loup géant fils de Loki et de la géante Angrboda dans la mythologie nordique. Élevé à Asgard, grandit si vite que les dieux décidèrent de l'enchaîner. Enchaîné avec Gleipnir (lien indestructible forgé par les Nains de Svartalfheim, souple comme de la soie) — prix payé : Tyr met sa main dans la gueule de Fenrir comme gage, la perd quand Fenrir comprend qu'il ne peut se libérer. Au Ragnarök, brise ses chaînes et dévore Odin. Tué ensuite par Víðarr (fils d'Odin) qui déchire sa gueule. Connexion ADAPA : monstre primordial enchaîné qui se libère à la fin des temps = même archétype que Apophis égyptien (serpent enchaîné chaque nuit par Rê), Typhon grec (enchaîné sous l'Etna), les forces du chaos contenues puis libérées au moment de la transition cosmique.

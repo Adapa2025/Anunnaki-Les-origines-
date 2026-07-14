@@ -1,0 +1,3 @@
+# PŌHUTUKAWA
+
+Arbre endémique de Nouvelle-Zélande (*Metrosideros excelsa*) — fleurs rouge vif. L'arbre de Te Rerenga Wairua (Cap Reinga) est un pōhutukawa de ~800 ans qui s'accroche à la falaise. Les âmes des morts maories descendent par ses racines jusqu'à la mer pour commencer leur voyage vers Hawaiki. Cet arbre est sacré — les visiteurs ne doivent pas manger sur le chemin qui y mène. Dans la cosmologie de Matariki, l'étoile Pōhutukawa est associée aux défunts et au voyage des âmes. Connexion ADAPA : arbre comme axis mundi / portail cosmologique = même archétype que Yggdrasil (nordique — arbre reliant les mondes), l'arbre de vie mésopotamien, le sycomore d'Hathor (Égypte — arbre à l'entrée du Duat).

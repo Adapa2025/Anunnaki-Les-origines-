@@ -1,0 +1,3 @@
+# KUPE
+
+Grand navigateur maori — figure historico-mythique qui découvre Aotearoa (Nouvelle-Zélande) depuis Hawaiki. Tue le monstre marin Te Wheke-a-Muturangi dans les eaux d'Aotearoa. Explore les côtes et retourne à Hawaiki annoncer la découverte de cette nouvelle terre. Son waka (pirogue) Matahourua est l'un des grands canots légendaires. Les iwi (tribus) maories tracent leur généalogie jusqu'à Kupe ou jusqu'aux capitaines des sept grands waka de la migration. Connexion ADAPA : même archétype du navigateur fondateur que Hotu Matu'a (Rapa Nui), Hui te Rangiora (navigation antarctique) — navigateurs polynésiens qui découvrent et nomment des terres nouvelles, ancrant leur whakapapa dans l'espace géographique.

@@ -1,0 +1,3 @@
+# MACASSAN
+
+Pêcheurs de trépang de Makassar (Sulawesi, Indonésie) qui visitaient le nord de l'Australie de façon régulière — XIVe siècle jusqu'à l'interdiction britannique en 1906-1907. Contacts préeuropéens documentés archéologiquement (foyers, objets en fer, tamariniers introduits). Les Yolŋgu ont adopté des mots de bahasa indonésien, intégré les Macassans dans leur mythologie, obtenu tabac, haches, couteaux en acier et pirogues creusées en échange du trépang. Art rupestre de prao macassans daté d'au moins ~400 ans (Arnhem Land). La relation Macassan-Yolŋgu est l'un des exemples les mieux documentés de contacts préeuropéens entre l'Australie et l'Asie du Sud-Est.

@@ -1,0 +1,5 @@
+**Placeholder — ORPHAN LINKS/MALI**
+**Sujet :** NOMMO — Êtres amphibies enseignants de la cosmogonie Dogon (Mali)
+**Lié à :** [[LIEUX MYTHIQUES/AFRIQUE/AFRIQUE DE L'OUEST/MALI/ADUNO KORO WIKI-NOTES|ADUNO KORO WIKI-NOTES]]
+**Connexion ADAPA :** [[LES ORIGINES/Les Anunnakis/ADAPA, Apkkalu, Abgals/ADAPA WIKI-NOTES|ADAPA WIKI-NOTES]] · [[LES ORIGINES/Les Anunnakis/ADAPA, Apkkalu, Abgals/Notes sur les Apkkalu, Abgals, Oannes|Notes sur les Apkkalu, Abgals, Oannes]]
+**Amorce :** Les Nommo (ou Nummo) sont des êtres primordiaux amphibies, hermaphrodites, mi-humains mi-poissons, nés de l'Œuf du Monde créé par Amma. Surnommés "Maîtres de l'Eau", "les Moniteurs", "les Enseignants". Ils transmettent aux huit ancêtres la parole, le tissage, l'astronomie et la géométrie rituelle. Structure narrative identique aux Apkallu/Abgal sumériens (Oannes/Adapa) : êtres aquatiques semi-divins venus enseigner la civilisation à l'humanité. Sources : Griaule, *Masques Dogons* (1938) ; Griaule & Dieterlen, *Le Renard pâle* (1965) ; Wikipedia EN (Nommo).

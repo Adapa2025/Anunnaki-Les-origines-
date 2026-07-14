@@ -1,0 +1,3 @@
+# TE PŌ
+
+L'Obscurité primordiale — deuxième état cosmologique maori, entre Te Kore (le Néant) et Te Ao Mārama (le Monde de Lumière). Nuit primordiale d'une longueur immense — les textes maorис décrivent de multiples couches de Te Pō (Te Pō-nui, Te Pō-roa, Te Pō-uriuri, Te Pō-kerekere, Te Pō-tiwhatiwha — le grand, le long, le profond, le dense, le sombre). C'est dans Te Pō que Ranginui et Papatuanuku s'unissent et engendrent leurs enfants divins. Te Pō est aussi le monde des morts — Hine-nui-te-pō y règne. Connexion ADAPA : même ténèbres primordiales que le Nun égyptien (eaux noires avant la création), l'Abzu mésopotamien dans sa dimension obscure, le Tehom hébreu (abîsse primordiale de Genèse 1:2).

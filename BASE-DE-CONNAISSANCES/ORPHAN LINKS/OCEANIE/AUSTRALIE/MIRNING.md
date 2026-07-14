@@ -1,0 +1,3 @@
+# MIRNING
+
+Peuple aborigène gardien de la Grande Baie australienne (*Great Australian Bight*) — côte de l'Australie-Méridionale et Occidentale qui fait directement face à l'Antarctique (~2 500 km). Tradition des baleines comme ancêtres sacrés — les baleines franches australes (*Southern Right Whale*) qui migrent dans la Grande Baie pour mettre bas sont des êtres ancestraux dans la cosmologie Mirning. Sites rituels sur les falaises surplombant la baie. Peuple peu documenté — sources ethnographiques fragmentaires. Lacune documentaire importante pour la question des traditions de l'extrême sud en Australie : si des traditions existent sur la direction sud ou l'au-delà de l'océan Austral, elles n'ont pas été enregistrées dans les sources accessibles.

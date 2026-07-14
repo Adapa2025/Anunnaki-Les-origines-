@@ -1,0 +1,3 @@
+# ALTJIRA
+
+Dieu du Temps du Rêve dans la tradition Aranda/Arrernte du désert central australien. Il créa la Terre puis se retira dans le ciel, laissant les Êtres Ancestraux accomplir leur œuvre de création détaillée. Figure du dieu démiurge qui s'efface après la création — parallèle structurel avec Brahma hindou (créateur qui se retire), avec Ptah égyptien (artisan divin qui se résorbe dans l'œuvre), et avec le Dieu de la Genèse qui "se repose" le septième jour. Le nom Altjira (aussi Altjeringa, Alcheringa) a donné l'un des premiers termes employés par les anthropologues coloniaux pour désigner le Temps du Rêve — avant l'adoption du terme anglais Dreamtime. Ses traces dans le ciel = la Voie Lactée dans certaines traditions Aranda.

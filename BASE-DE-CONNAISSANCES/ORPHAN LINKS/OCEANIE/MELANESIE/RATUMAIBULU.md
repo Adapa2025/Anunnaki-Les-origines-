@@ -1,0 +1,3 @@
+# RATUMAIBULU
+
+Dieu fidjien de l'agriculture — vient de Bulu (monde des esprits) chaque mois de Vula-i-Ratumaibulu pour faire fleurir et fructifier les arbres à pain et autres arbres fruitiers. Lien direct entre le monde souterrain des morts et la fertilité agricole du monde des vivants — les morts nourrissent les vivants via la végétation. Connexion ADAPA : dieu de la végétation et des récoltes qui fait l'aller-retour entre le monde des morts et le monde des vivants = même archétype que Perséphone (Grèce — 6 mois sous terre = hiver/6 mois à la surface = printemps), Dumuzi/Tammuz (Mésopotamie — mort et résurrection saisonnière), Osiris (Égypte — dieu mort qui assure la fertilité du Nil).

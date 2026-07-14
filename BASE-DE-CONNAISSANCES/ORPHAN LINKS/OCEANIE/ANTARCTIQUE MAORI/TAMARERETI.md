@@ -1,0 +1,3 @@
+# TAMARERETI
+
+Navigateur maori mentionné dans les whakataukī (proverbes traditionnels maori) comme ayant navigué en eaux antarctiques — il est décrit comme ayant péri en s'étouffant avec un petit poisson durant ce voyage. Sa mention dans un proverbe rhétorique implique que son voyage antarctique était suffisamment connu pour servir d'exemple — il n'était pas un événement marginal mais faisait partie de la mémoire collective. Documenté par Wehi et al. (2021). Un proverbe dit : "Tu ne peux pas gagner la chasse au petit poisson, par lequel Tamarereti s'est étouffé et Maungaroa est tombé" — la leçon rhétorique porte sur la stratégie militaire, mais l'ancrage géographique dans les eaux australes est documenté.

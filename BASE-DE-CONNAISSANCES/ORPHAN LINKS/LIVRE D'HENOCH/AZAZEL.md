@@ -1,0 +1,3 @@
+# AZAZEL
+
+Chef des Veilleurs dans 1 Hénoch (Livre des Veilleurs) — l'un des 200 anges qui descendent sur le Mont Hermon et s'unissent aux femmes humaines. Spécialité d'Azazel : il enseigne aux hommes la fabrication des armes et des boucliers (métallurgie de guerre), et aux femmes les ornements, la coquetterie et les arts de séduction — considérés comme corruptions de la civilisation. Également associé à la sorcellerie. Enchaîné par l'archange Raphaël dans le désert de Dudaël jusqu'au Jour du Jugement (1 Hénoch 10:4-8). Lien avec le rite du bouc émissaire (Lévitique 16:8-10 : le bouc "pour Azazel" envoyé dans le désert). Dans certaines traditions tardives, assimilé à Satan ou à un prince des démons.

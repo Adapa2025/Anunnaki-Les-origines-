@@ -1,0 +1,3 @@
+# NGURUNDERI
+
+Grand héros ancestral du Temps du Rêve des Ngarrindjeri (embouchure du Murray, Australie-Méridionale). A façonné le fleuve Murray en pourchassant Pondi (Murray Cod) — les méandres du fleuve sont les traces du combat. A créé les espèces de poissons en découpant Pondi. A poursuivi ses deux femmes fugitives jusqu'à la côte sud — elles se sont transformées en Pages Islands au large de Backstairs Passage. Ascension finale depuis l'île Kangourou : plonge dans l'océan et monte dans la Voie lactée où il réside. Son canoe en écorce s'y est transformé. Mémoire géologique documentée : le récit encode des transformations du paysage datées à 10 000-12 000 av. J.-C. (formation des lacs Alexandrina et Albert lors de la montée des eaux post-glaciaire).

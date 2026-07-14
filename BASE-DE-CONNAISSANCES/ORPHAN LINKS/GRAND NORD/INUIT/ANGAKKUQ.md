@@ -1,0 +1,3 @@
+# ANGAKKUQ
+
+Chamane inuit — médiateur entre le monde des vivants et les esprits (Adlivun, Qudlivun). Peut voyager en esprit jusqu'à Sedna pour lui peigner les cheveux et rétablir l'abondance marine. Guérit les malades en récupérant leurs âmes perdues. Communique avec les esprits des morts. Invoque ou apaise le tupilaq (monstre spirituel). Les chamans kalaallit (Groenland) sont spécifiquement appelés *angakkut*. Connexion ADAPA : médiateur entre humains et forces cosmiques = même archétype structurel que l'Apkallu mésopotamien (intermédiaire entre Anunnaki et humains), le Noaidi sámi, la Machi mapuche — institutions cérémonielles d'interface entre les mondes.

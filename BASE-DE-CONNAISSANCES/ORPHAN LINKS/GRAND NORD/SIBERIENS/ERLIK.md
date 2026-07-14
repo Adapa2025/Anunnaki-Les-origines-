@@ -1,0 +1,3 @@
+# ERLIK KHAN
+
+Dieu de la mort et du monde inférieur (Tamag) dans le tengrisme turco-mongol. Fils de Kayra (Tengere Kayra Khan), frère rival de Ülgen (dieu de la bienveillance). Mentionné dans les inscriptions d'Orkhon (VIIIe s.) — les plus anciens textes turciques connus. Contrôle les âmes des morts dans Tamag : certaines attendent de se réincarner, les plus maléfiques anéanties dans Ela Guren. Les chamanes peuvent descendre dans Tamag pour négocier avec Erlik le retour d'une âme — relation de marchandage, pas de soumission. Connexion ADAPA : frère rival du dieu bienveillant = Enlil/Enki (Mésopotamie), Seth/Osiris (Égypte), Loki/Odin (Nordique). Seigneur du monde souterrain négociable = Ereshkigal (Mésopotamie), Hine-nui-te-pō (Maori).

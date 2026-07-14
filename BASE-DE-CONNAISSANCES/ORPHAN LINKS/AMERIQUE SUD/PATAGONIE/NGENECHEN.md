@@ -1,0 +1,3 @@
+# NGENECHEN
+
+Être suprême de la religion mapuche — *Ngen-che* = "propriétaire/gouverneur des gens". Réside dans le Wenu Mapu (ciel supérieur). Créateur de toutes les espèces vivantes. Sa nature originelle est débattue : syncrétisme progressif avec le Dieu catholique sous influence coloniale espagnole, ou croyance monothéiste précoloniale authentique. Dieu de type patriarcal : *chau* (père), *kume* (bon). Gouverne le monde mais n'est pas omniscient ni omnipotent dans sa forme traditionnelle. Peint avec les quatre points cardinaux sur le Kultrum (tambour de la Machi). Connexion possible avec Temáukel Selknam et Watauinewa Yamana — même archétype du dieu suprême distant et non-anthropomorphe dans les traditions de l'extrême sud.

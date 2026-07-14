@@ -1,0 +1,3 @@
+# MÉTATRON
+
+Archange suprême de la mystique juive des Hekhalot — identifié à Hénoch transfiguré dans 3 Hénoch (Sefer Hekhalot). Après son enlèvement céleste, Hénoch fut transformé en ange de feu et devint Métatron, "Prince de la Face" ou "Second Pouvoir", gardien du trône divin au septième ciel. Reçoit 70 noms et un trône à l'entrée du septième ciel. Gouverne les armées célestes au nom de Dieu. Figure centrale de la Kabbale médiévale (Séfirah Keter ou connexion avec Kether). Étymologie débattue : grec *metathronos* ("auprès du trône"), ou *metattor* ("guide"), ou dérivé persan. Condamné par certains rabbins comme "Second Dieu" potentiellement dualiste.

@@ -1,0 +1,4 @@
+**Placeholder — ORPHAN LINKS/VENDA**
+**Sujet :** PYTHON BLANC — Dieu de la fertilité et gardien de Lake Fundudzi (Venda, Limpopo)
+**Lié à :** [[LIEUX MYTHIQUES/AFRIQUE/AFRIQUE DU SUD/VENDA/LAKE FUNDUDZI WIKI-NOTES|LAKE FUNDUDZI WIKI-NOTES]]
+**Amorce :** Le Python Blanc est la divinité principale du lac Fundudzi — dieu de la fertilité, gardien des esprits ancestraux venda. Vit dans la montagne surplombant le lac. Gouverne le village englouti sous les eaux. La Danse Domba (initiation des jeunes femmes) le satisfait et maintient le lien cosmique. Chaque source d'eau en territoire venda est associée à ce python. Serpent blanc = pureté, fertilité, pouvoir royal. Connexion avec les serpents-gardiens d'eau dans tout le corpus africain austral (Njuzu shona, crocodiles sacrés zimbabwéens). Sources : SacredSites.com (2024) ; SouthAfrica.net.

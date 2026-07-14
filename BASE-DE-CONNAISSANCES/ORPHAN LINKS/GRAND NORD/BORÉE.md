@@ -1,0 +1,3 @@
+# BORÉE
+
+Dieu grec du vent du nord — fils d'Éos (l'Aurore) et d'Astraios. Frère de Zéphyr (vent d'ouest), Notos (vent du sud) et Euros (vent d'est). Personnification du vent froid et violent qui souffle depuis le nord. Réside en Thrace (nord de la Grèce) selon les traditions. Les Hyperboréens vivent "au-delà de Borée" (*hyper Borée*) — c'est-à-dire dans un espace où les vents froids ne soufflent plus et où règne une douceur permanente. Les Boréades — descendants de Borée — sont les rois et prêtres de l'Hyperborée, décrits comme des géants (~2,7 m). Connexion ADAPA : vent personnifié comme divinité = même archétype que Tāwhirimātea maori (dieu des vents), Enlil mésopotamien (dieu du vent/souffle/autorité).

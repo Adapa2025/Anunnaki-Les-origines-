@@ -1,0 +1,3 @@
+# MALINOWSKI
+
+Bronisław Malinowski (1884-1942) — anthropologue polonais-britannique, fondateur de l'anthropologie sociale moderne. Séjours aux Trobriands 1915-1918 — ethnographies fondatrices : *Argonauts of the Western Pacific* (1922), *The Sexual Life of Savages* (1929), *Coral Gardens and their Magic* (1935). Premier anthropologue à pratiquer l'observation participante prolongée (apprendre la langue, vivre dans la communauté). Documenta les baloma (esprits des morts), Tuma (île des morts), la conception par le baloma, le Kula (échange cérémoniel interinsulaire). Sa documentation sur la sexualité trobriandaise (liberté prénuptiale, matrililignage, rôle de l'oncle maternel) a influencé les débats sur l'universalité de l'œdipe (Freud) et du complexe familial occidental.

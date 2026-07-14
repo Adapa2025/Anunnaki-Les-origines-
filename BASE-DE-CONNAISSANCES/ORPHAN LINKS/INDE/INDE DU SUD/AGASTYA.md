@@ -1,0 +1,3 @@
+# AGASTYA
+
+Agastya (அகத்தியர்) — premier et plus important des 18 Siddhas tamouls. Dans la tradition tamoule, fondateur de la grammaire tamoule (*Agattiyam*, texte perdu) après avoir survécu à la première submersion de Kumari Kandam. Disciple de Shiva/Murugan selon certaines traditions. Sage légendaire attesté dans le Rigveda (tradition védique du Nord) ET dans la tradition tamoule (tradition dravidienne du Sud) — cas de figure rare d'une figure partagée par les deux substrats. Connexion directe avec [[Chronologie des civilisations/ANCIENNNES CIVILISATIONS/CIVILISATIONS DISPARUES/KUMARI KANDAM/KUMARI KANDAM WIKI-NOTES|KUMARI KANDAM]].

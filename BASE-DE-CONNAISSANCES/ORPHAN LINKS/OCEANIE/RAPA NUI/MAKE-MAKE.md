@@ -1,0 +1,3 @@
+# MAKE-MAKE
+
+Dieu créateur suprême de la cosmologie Rapanui — dieu du ciel, de la mer et des oiseaux marins. Créateur des humains. Son iconographie : crâne d'homme aux yeux ronds en forme d'œuf, couronne de plumes — omniprésente dans les pétroglyphes d'Orongo. Dieu de l'œuf cosmique : il créa les humains à partir d'un œuf. Chaque année, le rite du Tangata Manu (Homme-Oiseau) réactualise cet acte créateur en récupérant le premier œuf de la sterne fuligineuse (*manutara*). Make-Make est à Rapa Nui ce que Waaq est aux Cushitiques ou Baiame aux Aborigènes du sud-est australien — principe créateur unique et suprême. Connexion avec les dieux-oiseaux : Horus (Égypte), Quetzalcóatl (Mésoamérique), Garuda (Inde).

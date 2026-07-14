@@ -1,0 +1,3 @@
+# MACHI
+
+Chamane mapuche — figure exclusivement féminine (ou bigenrée) servant d'intermédiaire entre le monde des vivants et le Wenu Mapu. Pratique ses rituels sur le Rewe — poteau sculpté symbolisant l'échelle cosmique entre la terre et les cieux. Joue le Kultrum (tambour semi-sphérique peint des quatre points cardinaux). Guérit les corps et les âmes, dirige les cérémonies, maintient l'équilibre entre les forces cosmiques. Connexion ADAPA : même archétype que le Laibon maasai (intermédiaire institutionnel entre humains et sacré), le N'anga tsonga, le Babalawo yoruba — médiateurs entre le monde ordinaire et les puissances cosmiques.

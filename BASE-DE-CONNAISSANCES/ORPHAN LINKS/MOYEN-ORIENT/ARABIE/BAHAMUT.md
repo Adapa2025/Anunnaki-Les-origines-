@@ -1,0 +1,3 @@
+# BAHAMUT
+
+Poisson géant cosmique dans la cosmologie arabique/islamique médiévale. Soutient le monde sur son dos : Bahamut porte un taureau (Kujata), le taureau porte un ange, l'ange porte le monde. Structure verticale de soutien cosmique à plusieurs niveaux. Connexion ADAPA : être cosmique porteur du monde = truite gigantesque aïnoue (Tuntu crée le monde sur son dos), Atlas grec (porte la voûte céleste), Upelluri hourrite (géant sur les épaules duquel pousse Ullikummi), tortue cosmique hindoue (Kûrma, avatar de Vishnu, porte le monde). L'être gigantesque qui soutient le monde est un archétype transculturel — le cosmos n'est pas auto-portant, il repose sur une entité antérieure.

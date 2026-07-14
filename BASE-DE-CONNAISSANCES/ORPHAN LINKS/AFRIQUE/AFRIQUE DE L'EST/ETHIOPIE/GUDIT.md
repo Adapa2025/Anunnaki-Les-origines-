@@ -1,0 +1,3 @@
+# GUDIT
+
+Reine légendaire d'Éthiopie et d'Érythrée — aussi connue sous les noms *Yodit*, *Judith*, *Esato* ("le feu"). Aurait régné au Xe siècle ap. J.-C. Selon les traditions, reine guerrière qui détruisit le royaume Aksumite chrétien, brûla des églises et des monuments, et régna pendant 40 ans avant d'être vaincue. Figure ambivalente : monstre destructeur dans les traditions chrétiennes éthiopiennes, figure de résistance et de souveraineté féminine dans d'autres lectures. Son identité est débattue — Juive, Agaw, ou Cushitique selon les sources. Parallèles : Arrawelo (Somalie), Furra (Sidamo) — archétype de la reine qui renverse l'ordre dominant dans la Corne de l'Afrique.

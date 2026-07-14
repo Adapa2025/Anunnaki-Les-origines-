@@ -1,0 +1,3 @@
+# KIRIWINA
+
+Île principale de l'archipel des Trobriands (PNG, Mélanésie). Peuple : Trobriandais — société matrilinéaire, hiérarchisée, à la jonction des civilisations mélanésiennes et polynésiennes. Centre rituel et politique : village d'Omarakana (résidence des chefs Tabalu). Cosmologie documentée par Malinowski : baloma (esprits des morts), Tuma (île des morts), conception par le baloma, Kula (échange cérémoniel interinsulaire de colliers et brassards). La tradition orale sur Tuma lie directement la mort à la naissance — cycle cosmologique continu entre le monde des vivants et le monde des morts.

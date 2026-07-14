@@ -1,0 +1,3 @@
+# TAGALOA
+
+Dieu créateur suprême aux Samoa — équivalent de Ta'aroa/Tangaroa. Demeurait dans l'espace avant que la terre n'existe. Fait apparaître la terre des profondeurs marines. Crée l'Homme intelligent en assemblant séquentiellement le cœur, la volonté et la pensée. Fait que l'Immensité et l'Espace engendrent Po et Ao (Nuit et Jour) qui créent le soleil. Crée neuf cieux et s'installe dans le neuvième (Fale-'ula). Son messager : Savali. Connexion ADAPA : assemblage séquentiel des composantes humaines (cœur + volonté + pensée) = procédure de création de l'humain par un dieu créateur = même structure que Enki façonnant l'humain dans les textes sumériens.

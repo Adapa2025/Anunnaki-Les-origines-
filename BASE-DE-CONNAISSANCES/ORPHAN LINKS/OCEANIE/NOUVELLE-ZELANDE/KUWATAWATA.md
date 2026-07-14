@@ -1,0 +1,3 @@
+# KUWATAWATA
+
+Gardien du portail entre Rarohenga (monde des morts maori) et le monde des vivants. Documenté dans le mythe de Mataora et Niwareka — Mataora descend à Rarohenga pour récupérer son épouse, obtient la permission de remonter mais oublie de laisser une offrande à Kuwatawata. Un décret est alors promulgué : désormais aucun humain ne pourra plus entrer à Rarohenga de son vivant. La frontière est définitivement scellée. C'est aussi lors de cette descente que Mataora apprend l'art du tā moko (tatouage facial) dans le monde souterrain. Connexion ADAPA : gardien du seuil entre vivants et morts = même archétype que Anubis (Égypte), Charon (Grèce), les galla sumériens.

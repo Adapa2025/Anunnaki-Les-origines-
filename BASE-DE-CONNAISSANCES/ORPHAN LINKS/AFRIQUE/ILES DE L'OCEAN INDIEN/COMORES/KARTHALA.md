@@ -1,0 +1,3 @@
+# KARTHALA
+
+Volcan actif de Grande-Comore (Ngazidja) — 2 361 m, l'un des plus grands volcans actifs d'Afrique. Lieu sacré dans la cosmologie comorienne : selon la mythologie locale, le roi Salomon y aurait emprisonné des esprits maléfiques (*madjini*). En vengeance, ces esprits lui dérobèrent l'anneau nuptial offert à la Reine de Saba et le jetèrent sur le sommet — d'où surgit le cratère volcanique. Lieu de présence des madjini les plus puissants de l'archipel. Le feu volcanique = seuil entre monde visible et Ulimwengu wa Madjini. Dernières éruptions majeures : 2005, 2007. Connexion mythologique : [[LIEUX MYTHIQUES/AFRIQUE/AFRIQUE DU NORD/EGYPTE/COLLINE PRIMORDIALE WIKI-NOTES|COLLINE PRIMORDIALE]] comme montagne émergente, axe entre les mondes.

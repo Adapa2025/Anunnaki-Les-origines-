@@ -1,0 +1,3 @@
+# GRIGORI
+
+Terme grec (*gregoroi* = "ceux qui veillent") désignant les Veilleurs (*Irin* en araméen) — les 200 anges qui descendent sur le Mont Hermon dans 1 Hénoch. Terme utilisé notamment dans 2 Hénoch (slave) pour désigner les anges du cinquième ciel qui se lamentent de leur chute. Deux catégories dans 2 Hénoch : les Grigori fidèles (restés au ciel) et les Grigori déchus (enchaînés dans le deuxième ciel). Dans la tradition rabbinique et chrétienne tardive, terme générique pour les anges déchus ayant pris des femmes. Connexion avec le terme hébreu *Irin* (Dan 4:13, 17, 23 — "un Veilleur et un Saint descendit du ciel").

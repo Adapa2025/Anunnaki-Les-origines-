@@ -1,0 +1,3 @@
+# HINA
+
+Déesse féminine universelle polynésienne — présente sous ce nom ou ses variantes dans tous les archipels. Rôles : déesse de la lune (Tahiti, Hawaii), première femme (Samoa), épouse de Tangaroa (Tonga, Wallis), déesse des arts textiles (Polynésie centrale). Légende du cocotier : Hina entretient une anguille sacrée ; l'anguille révèle être un homme-anguille amoureux, meurt, et de sa tête plantée pousse le premier cocotier (les yeux du cocotier = ses yeux regardant encore Hina). Connexion ADAPA : déesse lunaire universelle = même archétype que Nanna/Sin mésopotamien, Isis égyptienne (lune), Artémis grecque — féminin cosmique associé aux cycles lunaires.

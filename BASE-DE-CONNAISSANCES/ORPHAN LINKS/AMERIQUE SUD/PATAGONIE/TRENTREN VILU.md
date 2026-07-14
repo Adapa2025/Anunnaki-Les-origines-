@@ -1,0 +1,3 @@
+# TRENTREN VILU
+
+Serpent de la terre dans la mythologie mapuche — *trentren* = "lié à la terre", *vilu* = "serpent". Fils puni d'un autre Pillán. S'oppose à Kai-Kai Vilu (serpent de la mer) en faisant monter les montagnes pour sauver les humains de la montée des eaux. Protecteur de l'humanité dans le mythe fondateur mapuche du déluge. La géographie de Patagonie (Andes, fjords, archipels) est présentée comme résultat de ce combat millénaire entre eaux et terres. Connexion déluge : la tradition mapuche dit que les peuples de Terre de Feu sont arrivés sur l'île avant qu'elle ne devienne une île — mémoire orale de l'ouverture du détroit de Magellan il y a ~8 000 ans.

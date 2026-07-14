@@ -1,0 +1,3 @@
+# MURIMURIA
+
+Purgatoire/lieu de châtiment dans la mythologie fidjienne — où vont les âmes non admises à Burotu après le jugement de Degei. Le voyage vers Murimuria implique de traverser une étendue d'eau avec un passeur, puis d'affronter le Sala Ni Yalo (Chemin des Âmes) avec ses gardiens monstrueux : la Grande Femme, Nangganangga (monstre tueur d'où personne ne revient), un Pandanus sacré, un géant armé. Les hommes non mariés n'ont aucune chance de survie sur ce chemin. Connexion ADAPA : chemin des morts avec épreuves et gardiens = même structure que la Salle des Deux Vérités égyptienne (42 juges et pesée du cœur), les enfers du Kur sumérien avec leurs galla, le Chemin d'Hécate dans les Mystères grecs.

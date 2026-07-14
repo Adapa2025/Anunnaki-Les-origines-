@@ -1,0 +1,3 @@
+# AIYY
+
+Esprits bienveillants dans la mythologie yakoute (Sakha). Créateurs du monde et de la terre légendaire de l'Olonkho. Le plus grand d'entre eux : Ürüng Aiyy Toion ("Seigneur Blanc des Aiyy"). Résident dans le Monde Supérieur (Yughen Doydu). Refusent les sacrifices sanglants — uniquement produits laitiers et végétaux. Les *Aiyy Aimaga* ("Enfants des Aiyy/Dieux") sont les héros de l'Olonkho qui luttent contre les Abaahy. Connexion ADAPA : êtres célestes bienveillants créateurs = même archétype que les Anunnaki bienveillants (Enki, Ninhursag) vs destructeurs (Enlil), les Aiyy blancs vs Tengri noirs.

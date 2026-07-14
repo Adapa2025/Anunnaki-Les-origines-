@@ -1,0 +1,3 @@
+# PRISCILLA WEHI
+
+Chercheuse principale (Dr Priscilla Wehi), Landcare Research, Nouvelle-Zélande. Auteure des articles académiques fondateurs sur la connexion maorie à l'Antarctique (2021). Publications clés : "A short scan of Māori journeys to Antarctica" (Journal of the Royal Society of New Zealand, 2021) et "Transforming Antarctic management and policy with an Indigenous Māori lens" (Nature Ecology & Evolution, 5(8), 2021). A supervisé l'installation du pouwhenua Te Kaiwhakatere o te Raki à la base Scott (Antarctique, 2013). Citation : "Nous n'avons pas découvert ça — c'est un récit connu." — reconnaissant que les Maoris savaient depuis longtemps que leur tradition orale décrivait le grand sud.

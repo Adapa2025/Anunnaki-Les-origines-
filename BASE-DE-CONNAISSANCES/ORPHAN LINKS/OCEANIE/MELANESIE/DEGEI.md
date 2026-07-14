@@ -1,0 +1,3 @@
+# DEGEI
+
+Dieu suprême de la mythologie fidjienne — représenté comme un serpent. Créateur du monde, des fruits et des hommes. Associé au district de Rakiraki (Viti Levu nord). Juge les âmes des morts après leur passage par les deux grottes (Cibaciba ou Drakulu) — envoie une minorité à Burotu (paradis), la majorité vers Murimuria (purgatoire/châtiment). Connexion ADAPA : serpent créateur suprême ET juge des morts — double fonction rare et structurellement significative. Le serpent comme créateur : Yurlunggur (maori), Ungud (Kimberley), Kuniya (Anangu). Le serpent comme juge : connexion avec les traditions du jugement cosmique (Osiris, Yama védique). Degei cumule les deux dans une tradition mélanésienne indépendante.

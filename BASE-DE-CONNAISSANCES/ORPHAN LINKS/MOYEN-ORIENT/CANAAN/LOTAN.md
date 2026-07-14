@@ -1,0 +1,3 @@
+# LOTAN
+
+Dragon du chaos à sept têtes dans la mythologie ougaritique — serviteur de Yam, vaincu par Baal et Anat. Connexion directe et documentée avec le Léviathan biblique (*Livyatan*) — Ésaïe 27:1 reprend presque mot pour mot la formule ougaritique sur le serpent tors à sept têtes. C'est l'un des chaînons les plus solides entre mythologie cananéenne et Bible hébraïque. Connexion ADAPA : serpent/dragon du chaos primordial à plusieurs têtes = Typhon grec (100 têtes), Vritra védique, Illuyanka hittite, Jörmungandr nordique, Apophis égyptien — archétype universel du chaos serpentin que le dieu ordonnateur doit vaincre.

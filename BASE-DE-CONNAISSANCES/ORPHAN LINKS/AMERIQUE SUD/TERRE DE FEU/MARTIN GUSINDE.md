@@ -1,0 +1,3 @@
+# MARTIN GUSINDE
+
+Martin Gusinde (1886-1969) — prêtre catholique et ethnologue autrichien, principal documenteur des cultures de Terre de Feu (Selknam, Yamana, Kawésqar). Quatre expéditions en Terre de Feu (1918-1924). Œuvre principale : *Die Feuerland-Indianer* (3 volumes) — la plus complète documentation des mythologies et rituels des peuples fuégiens. A été adopté par les Selknam et initié au Hain — accès sans précédent à la cérémonie secrète. Son travail est la source primaire principale pour la cosmologie Selknam (Temáukel, Kenos, Xalpen, structure des quatre ciels). Sans Gusinde, la quasi-totalité de ces traditions serait perdue. Travaille dans les années 1920 — juste après le génocide Selknam, quelques survivants restants.

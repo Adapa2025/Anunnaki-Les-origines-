@@ -1,0 +1,3 @@
+# FAM
+
+Premier humain créé par la trinité Nzame-Mebere-Nkwa dans la cosmogonie Fang — issu d'un lézard créé par Mebere, transformé en homme après huit jours. Doté des capacités des trois dieux, chargé de régner sur la Terre. Devenu tyran, il opprima les animaux et défia les créateurs. Nzame détruisit la première création, enfouit Fam sous la terre par une catastrophe cosmique, et créa une nouvelle surface par-dessus. Fam reste sous la terre comme source des forces malveillantes (evus). Parallèle structurel avec Caïn (hébreu), avec la première humanité détruite par le déluge (Atrahasis), et avec les géants nordiques ensevelis sous Midgard.

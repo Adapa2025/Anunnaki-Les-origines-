@@ -1,0 +1,3 @@
+# OPHIR
+
+Pays lointain d'où les navires du roi Salomon rapportaient de l'or, du bois d'ébène, des pierres précieuses et des paons (1 Rois 9:28 ; 10:11 ; 2 Ch 8:18). Localisation indéterminée — candidats : péninsule arabique, côte est-africaine (Zimbabwe/Mozambique), Inde occidentale, Sri Lanka. Au XVIe siècle, certains géographes et marchands espagnols identifièrent les Îles Salomon (découvertes en 1568 par Álvaro de Mendaña) à Ophir, alimentant l'idée que la Terra Australis abritait les richesses légendaires de Salomon. L'atlas d'Ortelius (1570) place Ophir/Lokak sur la masse de la Terra Australis. La connexion Salomon-Ophir-Terra Australis est un des vecteurs de persistance du continent imaginaire dans les esprits des explorateurs et marchands du XVIe-XVIIe s.

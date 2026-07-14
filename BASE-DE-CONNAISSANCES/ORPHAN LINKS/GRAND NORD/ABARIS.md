@@ -1,0 +1,3 @@
+# ABARIS
+
+Guérisseur légendaire hyperboréen — mentionné pour la première fois par Hérodote. Capable de voyager sans se nourrir. Associé à des pratiques de guérison et à une flèche d'or sur laquelle il se déplaçait selon certaines versions. Karl Meuli (XXe s.) et Walter Burkert l'ont interprété comme une figure chamanique — pratiques similaires au chamanisme sibérien (voyage en esprit, guérison à distance, transe). Connexion possible avec les chamanes sámi (*noaidi*) et les chamanes sibériens (*shaman* en toungouze). Abaris représente le pont entre la tradition grecque des Hyperboréens et les pratiques chamaniques réelles du grand nord.

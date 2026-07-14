@@ -1,0 +1,3 @@
+# KEL ASUF
+
+Esprits de la solitude dans la cosmologie Touareg (Tamashek : *Kel Asuf* = "Gens de l'Asuf" ; sing. *Ag Asuf* = "fils de l'Asuf"). Esprits des morts anonymes — ceux dont le nom a été oublié après une ou deux générations. Errent dans les zones désertées du Sahara. Malveillants, capables de possession. Attaquent par le côté nord des tentes. Préfèrent former des alliances avec les femmes, frappent les hommes par colère. Entrent dans le corps par la bouche. Repoussés par l'argent (métal le plus pur dans la cosmologie Touareg), le voile masculin (*tagelmust*), les Croix d'Agadez et les amulets en cuir (*teraut*). Persistent sous la couche islamique — parfois assimilés aux djinn arabes mais concept pré-islamique.

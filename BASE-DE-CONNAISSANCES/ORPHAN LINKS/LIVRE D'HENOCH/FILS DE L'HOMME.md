@@ -1,0 +1,3 @@
+# FILS DE L'HOMME
+
+Titre christologique et eschatologique central dans le Livre des Paraboles (1 Hénoch 37-71) — figure préexistante et céleste choisie avant la création du monde, cachée auprès de Dieu, révélée à la fin des temps pour juger les rois et les puissants. Aussi appelé "l'Élu" et "l'Oint" dans les Similitudes. Identifié à Hénoch lui-même dans le dénouement (1 Hénoch 71). Débat académique majeur : la figure du Fils de l'Homme dans les Évangiles (Mt 26:64, Mc 14:62 etc.) dépend-elle directement de 1 Hénoch 37-71, ou des deux proviennent-ils d'une source commune ? Les Similitudes sont le seul texte hénochien absent de Qumrân — datation et rapport au NT contestés. Connexion avec Daniel 7:13 ("comme un Fils d'homme venant avec les nuées du ciel").

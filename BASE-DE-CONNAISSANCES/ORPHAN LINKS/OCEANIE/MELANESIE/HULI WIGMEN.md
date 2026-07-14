@@ -1,0 +1,3 @@
+# HULI WIGMEN
+
+Gardiens cérémoniels du soleil chez les Huli (hauts plateaux de PNG). Reconnaissables à leurs perruques élaborées faites de leurs propres cheveux — processus de fabrication prenant plusieurs années. Chargés de maintenir la fertilité de la terre et le bon déroulement des cycles solaires par des rituels spécifiques. La déesse solaire Huli est Ni. Connexion ADAPA : gardiens rituels du soleil = même archétype que les prêtres d'Aten en Égypte, les prêtres Inti Raymi incas — institutions cérémonielles dont la fonction est de maintenir l'équilibre cosmique via le lien rituel avec le soleil.

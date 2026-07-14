@@ -1,0 +1,3 @@
+# DJANG'KAWU (Djanggawul)
+
+Ancêtres créateurs de la moitié Dhuwa dans la mythologie Yolŋgu (Arnhem Land). Deux sœurs et leur frère, arrivant de l'est (direction du soleil levant) sur une pirogue. Voyagent le long des côtes d'Arnhem Land en plantant des bâtons sacrés — là où les bâtons s'enfoncent, de l'eau surgit et des lieux sacrés naissent. Créent les clans Dhuwa, établissent leurs langues et leurs cérémonies. C'est dans leur cycle de chants que les Baijini sont mentionnés comme peuple précédant les Macassans. Direction d'origine (est) coïncide géographiquement avec l'Indonésie — la tradition distingue explicitement ces ancêtres mythologiques des visiteurs historiques macassans.

@@ -1,0 +1,3 @@
+# MOINEE
+
+Figure divine créatrice dans la cosmologie Palawa (Tasmanie). Crée les premiers Palawa. Se bat dans le ciel — combat cosmique lié à des étoiles dont Sirius. Réside dans les hauteurs célestes. Documenté fragmentairement dans les journaux de George Augustus Robinson (1830s) — recueillis in extremis auprès des derniers locuteurs Palawa. Reconstruction principale : Gantevoort, Hamacher & Lischick (2016). ⚠️ Sources extrêmement fragmentaires — la quasi-totalité de la mythologie Palawa est perdue avec le génocide. Connexion ADAPA : créateur céleste impliqué dans un combat cosmique dont les étoiles portent la trace = même structure que Enlil/Enki (combats célestes sumériens), Marduk vs Tiamat (Enûma Eliš).

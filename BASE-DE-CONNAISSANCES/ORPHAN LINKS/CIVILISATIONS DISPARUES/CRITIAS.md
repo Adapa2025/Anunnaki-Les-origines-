@@ -1,0 +1,3 @@
+# CRITIAS
+
+Personnage des dialogues de Platon — Critias le Jeune, aristocrate athénien, narrateur du récit de l'Atlantide dans le *Timée* et le *Critias*. Il affirme tenir l'histoire de son arrière-grand-père Critias l'Ancien, qui la tenait du législateur Solon (~638-558 av. J.-C.), qui l'avait entendue de prêtres égyptiens de Saïs. Cette chaîne de transmission en cinq maillons (Saïs → Solon → Dropide → Critias l'Ancien → Critias le Jeune → Platon) est la garantie de véracité que Platon met en scène. Historiquement, il existe un Critias (460-403 av. J.-C.) — aristocrate athénien, l'un des Trente Tyrans, oncle maternel de Platon. C'est probablement lui ou un ancêtre que Platon choisit comme narrateur.

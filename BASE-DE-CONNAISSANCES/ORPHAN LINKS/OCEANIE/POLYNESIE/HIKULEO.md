@@ -1,0 +1,3 @@
+# HIKULE'O
+
+Déesse tonganaise (aussi Havea Hikule'o) — gardienne de Pulotu (monde des morts). Fille de Limu et Kele (êtres élémentaux de la mer et des sédiments). Sœur de Tangaloa (ciel) et Māui (terre). Reçoit Pulotu lors de la division de l'univers entre les trois frères à la mort de leur père. Forme plusieurs îles volcaniques de Tonga en jetant des pierres depuis le ciel. Préside la mort non comme destruction mais comme custode de la sagesse ancestrale. Peut rassembler les esprits des morts pour qu'un vivant retrouve son épouse décédée. Connexion ADAPA : gardienne du monde souterrain avec pouvoir sur les volcans = même archétype qu'Ereshkigal (Mésopotamie), Hine-nui-te-pō (Maori), Hel (nordique).

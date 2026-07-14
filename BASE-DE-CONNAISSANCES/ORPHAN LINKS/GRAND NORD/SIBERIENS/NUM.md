@@ -1,0 +1,3 @@
+# NUM
+
+Dieu créateur du ciel chez les Nénètses (peuples samoyèdes de Sibérie, péninsule de Yamal). *Num* = "ciel" en langue nénètse. Dieu des tempêtes, créateur du monde. Époux de Ya-Nebya (Mère Terre). Selon un mythe : ordonne à des cygnes et des oies de plonger pour voir s'il existe de la terre au fond des Eaux — cosmogonie de la plongée (*Earth-Diver myth*) présente chez les peuples circumpolaires, amérindiens et finno-ougriens. Co-crée le monde avec Nga (son opposé) en collaborant et se faisant concurrence — dualisme cosmologique documenté. Connexion ADAPA : dieu du ciel créateur = An/Anu sumérien, Tengri turcique — le ciel comme principe créateur masculin suprême.

@@ -1,0 +1,3 @@
+# BWITI
+
+Système religieux syncrétique des peuples forestiers d'Afrique centrale équatoriale — principalement Fang (Cameroun, Gabon, Guinée Équatoriale), Punu et Mitsogo (Gabon). Reconnu comme religion officielle au Gabon. Combine animisme, culte des ancêtres Bieri et éléments chrétiens. Centré sur l'utilisation rituelle du *Tabernanthe iboga* (plante psychédélique) lors des cérémonies d'initiation — visions d'ancêtres, rencontres avec les esprits, transformation spirituelle. L'iboga est identifié à "l'arbre sacré" médiateur entre vivants et morts, parfois assimilé à l'iboga créé des côtes de Nzame.

@@ -1,0 +1,3 @@
+# ARNAKUAGSAK (Sassuma Arnaa)
+
+Variante groenlandaise (Kalaallit) de Sedna — déesse des profondeurs marines. Noms : Arnakuagsak (*"Vieille Femme"*), Arnaqquassaaq, Sassuma Arnaa (*"Mère des Profondeurs"* en groenlandais occidental). Même fonction que Sedna : maîtresse des créatures marines, gouvernante d'Adlivun. Les angakkuit (chamanes kalaallit) doivent lui rendre visite en esprit pour peignes ses cheveux emmêlés et rétablir l'abondance marine quand la chasse est mauvaise. Connexion ADAPA : même archétype que Tiamat mésopotamienne (déesse primordiale des eaux démembrée) — la Mère des Profondeurs qui contrôle la vie et la mort des humains via les ressources marines.

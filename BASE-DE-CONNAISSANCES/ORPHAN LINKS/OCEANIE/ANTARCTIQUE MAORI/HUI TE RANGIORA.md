@@ -1,0 +1,3 @@
+# HUI TE RANGIORA
+
+Navigateur polynésien de Rarotonga (Îles Cook), dont le voyage vers le grand sud est daté d'environ 650 ap. J.-C. — soit ~1 200 ans avant les premières expéditions européennes en Antarctique. Son embarcation : le waka Te Iwi-o-Atea. La tradition orale de sa navigation est conservée par les tribus maories Ngāti Rārua et Te Āti Awa. Il décrit des eaux glacées (Te Tai-uka-a-pia), des icebergs ou montagnes nues, du kelp géant flottant comme une chevelure. Documenté dans une série d'articles académiques par Priscilla Wehi et al. (Journal of the Royal Society of New Zealand, 2021 ; Nature Ecology & Evolution, 2021). Probablement le premier être humain dont la tradition orale décrit l'Antarctique.

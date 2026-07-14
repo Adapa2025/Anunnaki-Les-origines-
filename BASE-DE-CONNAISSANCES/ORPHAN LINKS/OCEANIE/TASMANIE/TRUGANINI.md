@@ -1,0 +1,3 @@
+# TRUGANINI
+
+Palawa Nuenonne (île Bruny), née ~1812, morte 8 mai 1876 à Hobart. Considérée comme la dernière Palawa de plein sang (bien que des descendants métis vivent dans le détroit de Bass). A participé à la résistance armée (guérilla avec Tunnerminnerwait, raids au sud de Melbourne, 1841). Déportée à l'île Flinders puis Oyster Cove. Dernières paroles sur son lit de mort : "Ne les laissez pas me couper en morceaux." — Son corps fut exhumé et exposé au Musée de Tasmanie jusqu'en 1947. Incinérée en 1976, cendres dispersées dans la Derwent. Figure centrale de la mémoire du génocide tasmanien. Son nom Nuenonne : Lunawanna-Alonnah.

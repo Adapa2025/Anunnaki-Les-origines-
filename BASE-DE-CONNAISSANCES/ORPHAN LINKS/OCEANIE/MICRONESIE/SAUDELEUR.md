@@ -1,0 +1,3 @@
+# SAUDELEUR
+
+Dynastie qui gouvernait Pohnpei (Micronésie) et a construit Nan Madol entre le XIIe et le XVIIe siècle ap. J.-C. Société polynésienne-micronésienne documentée archéologiquement. Transport des blocs de basalte (jusqu'à 50 tonnes) depuis le nord-ouest de Pohnpei (~35 km) confirmé par analyse géochimique. Construction sur îlots artificiels dans un lagon — canaux de liaison. La tradition orale attribue la construction à un magicien qui faisait voler les pierres — archétype documenté des grands chantiers monumentaux. La dynaste Saudeleur s'effondre vers 1628 selon les traditions orales. Nan Madol = chef-d'œuvre de génie civil, pas un vestige inexpliqué.

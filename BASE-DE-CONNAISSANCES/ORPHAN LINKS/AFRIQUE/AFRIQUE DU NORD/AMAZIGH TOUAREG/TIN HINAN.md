@@ -1,0 +1,3 @@
+# TIN HINAN
+
+Reine légendaire ancêtre de tous les Touareg. Aurait vécu à la fin de l'Antiquité (~IVe-Ve siècle ap. J.-C.). Selon la tradition orale, elle conduisit la migration des premiers Touareg depuis le Maghreb côtier vers les profondeurs du Sahara, chevauchant une chamelle blanche, accompagnée de sa servante Takamat. Sa tombe a été retrouvée et fouillée en 1925 dans le massif de l'Ahaggar (Algérie) — sépulture de femme de haut rang avec bijoux en or et argent. Vénérée comme ancêtre matrilinéaire suprême — la lignée Touareg descend d'elle. Parallèle avec Arrawelo (Somalie) et Gudit (Éthiopie) comme figure féminine fondatrice de la Corne et du Sahara.

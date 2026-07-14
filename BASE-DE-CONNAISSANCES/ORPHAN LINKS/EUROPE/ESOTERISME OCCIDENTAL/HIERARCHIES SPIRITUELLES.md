@@ -1,0 +1,3 @@
+# HIÉRARCHIES SPIRITUELLES (STEINER)
+
+Hiérarchies Spirituelles — neuf ordres d'êtres spirituels dans la cosmologie steinerienne, empruntant la structure de Denys l'Aréopagite (Ve-VIe s.) et réinterprétée anthroposophiquement. Du plus élevé au plus proche de l'humain : Séraphins, Chérubins, Trônes (première hiérarchie) ; Seigneurs de la Sagesse/Kyriotetes, Seigneurs du Mouvement/Dynamis, Seigneurs de la Forme/Exusiai (deuxième hiérarchie) ; Archai/Esprits de la Personnalité, Archanges, Anges (troisième hiérarchie). L'être humain est en voie de devenir la dixième hiérarchie. Sources : Steiner, *La Hiérarchie spirituelle et sa réflexion dans le monde physique* (1909).

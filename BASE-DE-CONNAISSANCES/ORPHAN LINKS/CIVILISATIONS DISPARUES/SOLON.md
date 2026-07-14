@@ -1,0 +1,3 @@
+# SOLON
+
+Législateur et poète athénien (~638-558 av. J.-C.) — l'un des Sept Sages de la Grèce, réformateur de la constitution athénienne (594 av. J.-C.). Dans le récit platonicien de l'Atlantide, Solon aurait entendu l'histoire de la bouche de prêtres égyptiens lors d'un voyage à Saïs (Basse-Égypte). Les prêtres lui auraient dit que les Grecs sont "de jeunes enfants" comparés à la mémoire égyptienne, et lui auraient révélé les exploits préhistoriques d'Athènes contre l'Atlantide. Cette tradition est transmise de Solon à Dropide à Critias l'Ancien à Critias le Jeune à Platon. Solon a effectivement visité l'Égypte selon plusieurs sources antiques — ce voyage réel sert de caution géographique au récit platonicien.

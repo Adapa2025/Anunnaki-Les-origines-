@@ -1,0 +1,3 @@
+# PHILIP SCLATER
+
+Philip Lutley Sclater (1829-1913) — zoologiste et ornithologue britannique, secrétaire de la Société Zoologique de Londres (1859-1902). Auteur de l'article "The Mammals of Madagascar" (*Quarterly Journal of Science*, 1864) qui introduit le concept de Lémurie pour expliquer la répartition géographique des lémuriens. Hypothèse scientifique légitime pour son époque, infirmée par la tectonique des plaques au XXe siècle. Travaux académiques nombreux et sérieux en biogéographie et ornithologie — la Lémurie est un épisode mineur de son œuvre, démesurément amplifié par la réception ésotérique ultérieure. N'a jamais postulé de civilisation humaine sur ce continent — il cherchait simplement à expliquer la migration des lémuriens.

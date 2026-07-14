@@ -1,0 +1,3 @@
+# ORTELIUS
+
+Abraham Ortelius (1527-1598) — cartographe flamand d'Anvers, auteur du *Theatrum Orbis Terrarum* (1570), considéré comme le premier atlas moderne. L'édition de 1570 représente une immense *TERRA AVSTRALIS NONDUM COGNITA* couvrant presque tout l'hémisphère sud, reliée à l'Amérique du Sud et à la Nouvelle-Guinée — la représentation la plus influente de la Terra Australis. L'atlas eut une large diffusion en Europe, notamment en Angleterre. Ortelius est aussi l'un des premiers à observer que les côtes africaines et sud-américaines semblaient correspondre — intuition proto-tectonique. Son *Theatrum* fixe pour deux siècles l'image cartographique du continent austral imaginaire.

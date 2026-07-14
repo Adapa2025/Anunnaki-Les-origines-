@@ -1,0 +1,3 @@
+# VISHAP
+
+Vishap (վիշապ) — dragons-serpents cosmiques de la mythologie arménienne. Résident dans les profondeurs d'[[ERKIR WIKI-NOTES|Erkir]] : lacs de montagne, sources souterraines, cavités rocheuses. Combattus par le héros Vahagn (*Vishapakagh*). Les stèles-vishap (pierres dressées en forme de poisson ou serpent, IIIe-IIe millénaire av. J.-C., plateau arménien) en sont la trace matérielle archéologique. Connexion structurelle avec les serpents cosmiques d'autres traditions : [[LIEUX MYTHIQUES/MOYEN-ORIENT/CANAAN OUGARIT/ARETZ MOT WIKI-NOTES|Lotan ougaritique]], serpents primordiaux mésopotamiens.

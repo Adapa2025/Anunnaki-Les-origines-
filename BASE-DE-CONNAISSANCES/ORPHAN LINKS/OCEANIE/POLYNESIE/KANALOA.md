@@ -1,0 +1,3 @@
+# KANALOA
+
+Équivalent hawaiien de Tangaroa/Ta'aroa — dieu des profondeurs marines, de l'océan et du monde souterrain. Forme une dyade avec Kāne (dieu de la lumière) — ensemble ils créèrent l'eau douce, les forêts, les plantes médicinales. Kanaloa est parfois associé à la pieuvre géante (*he'e*). Dans certaines interprétations post-contact, Kanaloa a été assimilé au diable chrétien — interprétation coloniale rejetée par les chercheurs contemporains. Connexion structurelle : divinité des profondeurs marines dans un panthéon où son pendant céleste est un dieu de la lumière = même dualisme ciel/profondeurs que dans d'autres traditions.

@@ -1,0 +1,3 @@
+# PILLÁN
+
+Esprits ancestraux puissants de la mythologie mapuche — héros mythiques et ancêtres devenus forces cosmiques après la mort. Résident dans le Wenu Mapu et se manifestent depuis l'intérieur des volcans patagons (Osorno, Quetrupillán). Antü (le soleil) est le Pillán le plus puissant. Un homme qui a suivi les lois de l'admapu peut devenir Pillán après la mort — continuité entre les vivants exemplaires et les puissances cosmiques. Connexion ADAPA : même structure que les Apkallu mésopotamiens — humains exceptionnels devenus esprits gardiens. Les Pillán peuvent aussi provoquer des catastrophes (séismes, éruptions, inondations) ou permettre aux Wekufe (esprits malveillants) de punir.

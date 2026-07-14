@@ -1,0 +1,3 @@
+# TOPHETH
+
+Section de la vallée de Hinnom (Géhenne), à Jérusalem, identifiée comme le lieu précis des sacrifices d'enfants offerts à Moloch et Baal par les rois Ahaz et Manassé (~VIIIe-VIIe s. av. J.-C.). Le nom *Tōphet* dérive probablement de l'araméen *tāpā* ("foyer", "brasier") ou de l'hébreu *bōshet* ("honte") — terme péjoratif substitué intentionnellement dans les textes massorétiques. Profané par Josias (~621 av. J.-C.) qui y déposa des ossements humains pour le rendre rituellement impur (2 Rois 23:10). Jérémie prophétise qu'il sera renommé "Vallée du Massacre" (Jr 7:32-33). Son emplacement précis est à la jonction des vallées du Tyropéon et du Cédron. Connexion directe avec le culte de [[MOLOCH WIKI-NOTES|MOLOCH]].

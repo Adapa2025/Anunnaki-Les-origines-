@@ -1,0 +1,3 @@
+# KATA TJUTA
+
+Groupe de 36 dômes de grès rouge à 30 km à l'ouest d'Uluru — nom Anangu signifiant "beaucoup de têtes". Nom colonial : Olgas ou Monts Olga (plus haut dôme : 546 m). Âge géologique similaire à Uluru (~600 millions d'années). Site sacré complémentaire d'Uluru dans le Tjukurpa Anangu — récits distincts mais système uni. Certaines zones sont réservées exclusivement aux hommes initiés — accès interdit au public. La gorge principale (Valley of the Winds) est accessible. Classé Patrimoine mondial UNESCO avec Uluru. Dans le Tjukurpa, plusieurs êtres ancestraux distincts d'Uluru ont façonné Kata Tjuta — les récits précis sont en grande partie maintenus secrets par les gardiens traditionnels.

@@ -1,0 +1,3 @@
+# CROIX D'AGADEZ
+
+Amulette en argent de la tradition Touareg — la plus connue des 21 Croix Touareg (une par ville ou région : Agadez, Tahoua, In-Gall, Zinder, etc.). Forgée en argent — métal le plus pur dans la cosmologie Touareg, protection maximale contre les Kel Asuf. Forme : croix à motifs géométriques complexes, parfois surmontée d'un sommet en pommeau. Traditionnellement offerte par le père à son fils avec la phrase : "Je te donne cette croix car nous ne savons pas où tu mourras." Portée comme talisman de protection pendant les voyages dans le désert — l'Asuf. Classée patrimoine culturel immatériel. Aujourd'hui produite en masse pour le tourisme mais les pièces authentiques restent forgées par les artisans *inaden*.

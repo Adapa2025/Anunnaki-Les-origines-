@@ -1,0 +1,3 @@
+# SOCIÉTÉ DE THULÉ
+
+Organisation secrète allemande fondée en 1918 à Munich par Rudolf von Sebottendorf — groupe d'études germaniques et ésotériques. Idéologie fondée sur la croyance en une race supérieure aryenne née en Hyperborée. Sources d'inspiration : ariosophie de Guido von List, Jörg Lanz von Liebenfels, Helena Blavatsky, Arthur de Gobineau. C'est dans ses cercles que naît en 1919 le DAP (Deutsche Arbeiterpartei), rebaptisé NSDAP en 1920 — parti d'Adolf Hitler. Toutefois, les historiens soulignent que les liens entre Hitler personnellement et la Société de Thulé sont souvent sur-interprétés. C'est davantage Himmler qui est le principal vecteur de l'ésotérisme nazi, via l'Ahnenerbe (1935). Connexion ADAPA : fiche AHNENERBE, sessions mai 2026.

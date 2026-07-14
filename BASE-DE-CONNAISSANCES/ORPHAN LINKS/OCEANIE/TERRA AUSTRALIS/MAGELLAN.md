@@ -1,0 +1,3 @@
+# MAGELLAN
+
+Ferdinand Magellan (~1480-1521) — navigateur portugais au service de l'Espagne, organisateur de la première circumnavigation du globe (1519-1522). En 1520, il découvre et traverse le détroit qui porte son nom (détroit de Magellan, ~52°S), séparant l'Amérique du Sud de la Terre de Feu. Il aperçoit des feux sur la Terre de Feu (d'où le nom) et la croit être le cap septentrional de la Terra Australis. Cette confusion fut durable — la Terre de Feu resta identifiée à la Terra Australis pendant plusieurs décennies. Magellan est tué aux Philippines en 1521 ; son expédition complète la circumnavigation sans lui. Sa traversée du détroit repoussa les limites supposées de la Terra Australis au-delà du 52e parallèle sud.

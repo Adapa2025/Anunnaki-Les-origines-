@@ -1,0 +1,4 @@
+**Placeholder — ORPHAN LINKS/KENYA**
+**Sujet :** NGAI / MWENE NYAGA — Dieu créateur suprême des peuples des hautes terres du Kenya
+**Lié à :** [[LIEUX MYTHIQUES/AFRIQUE/AFRIQUE DE L'EST/KENYA/KIRINYAGA WIKI-NOTES|KIRINYAGA WIKI-NOTES]] · [[LIEUX MYTHIQUES/AFRIQUE/AFRIQUE DE L'EST/TANZANIE/OL DOINYO LENGAI WIKI-NOTES|OL DOINYO LENGAI WIKI-NOTES]]
+**Amorce :** Ngai (aussi Mwene Nyaga — "Possesseur de la Luminosité", Mũrungu) est le dieu créateur suprême partagé entre les Kikuyu (Bantu), Embu, Meru, Kamba et les Maasai (Nilotiques). Omnipotent, immanent dans la pluie, le tonnerre et la foudre. Réside sur les pics enneigés de Kirinyaga/Ol Doinyo Lengai. Inaccessible directement aux humains. Les ancêtres (Makuyu) et le Laibon servent d'intermédiaires. Même dieu, deux montagnes — convergence cosmologique remarquable entre peuples d'origines différentes. Sources : Wikipedia EN (Ngai) ; SacredLand.org ; Urumwe.org.

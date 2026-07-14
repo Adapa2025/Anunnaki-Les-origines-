@@ -1,0 +1,3 @@
+# SHEMHAZAÏ
+
+Chef suprême des 200 Veilleurs dans 1 Hénoch (Livre des Veilleurs, chap. 6). Aussi translittéré Shemyaza, Semyaza, Samyaza. C'est lui qui organise le serment collectif des Veilleurs sur le Mont Hermon — chacun jure de descendre et de s'unir aux femmes humaines, aucun ne devant se désister seul. Après le déluge et le jugement, Shemhazaï est condamné à être suspendu entre ciel et terre jusqu'au Jugement dernier — ni dans le ciel (exilé) ni sur la terre. Certaines versions parlent de lui suspendu tête en bas parmi les étoiles, formant la constellation d'Orion. Connexion structurelle avec Prométhée (puni pour avoir transmis un savoir interdit aux humains).

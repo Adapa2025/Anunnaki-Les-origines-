@@ -1,0 +1,3 @@
+# MĀUI
+
+Demi-dieu trickster pan-polynésien — présent dans les traditions de Nouvelle-Zélande, Hawaii, Tonga, Samoa, Rapa Nui. Exploits principaux : pêche l'Île du Nord (Te Ika-a-Māui) avec l'hameçon Manaiakalani fait d'un os de sa grand-mère ; capture le soleil pour ralentir sa course (les jours trop courts) ; vole le feu à Mahuika. Mort : tente d'arracher l'immortalité en traversant le corps endormi de Hine-nui-te-pō (Grande Dame de la Mort) — des oiseaux rient, la réveillent, elle l'écrase. Depuis, les humains sont mortels. Figure du héros qui repousse les limites du possible jusqu'à l'excès fatal — même archétype que Gilgamesh poursuivant l'immortalité.

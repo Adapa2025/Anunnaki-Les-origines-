@@ -1,0 +1,3 @@
+# ABEL TASMAN
+
+Abel Janszoon Tasman (1603-1659) — navigateur néerlandais de la VOC (Compagnie néerlandaise des Indes orientales). Première expédition (1642-1643) : premier Européen à atteindre la Tasmanie (qu'il nomme Terre de Van Diemen), la Nouvelle-Zélande, les Îles Tonga et les Fidji. Son parcours contourne l'Australie par le sud sans la voir directement — il longe des côtes méridionales inconnues. Deuxième expédition (1644) : cartographie les côtes nord et ouest de l'Australie. Sa conclusion après les deux voyages : l'Australie est une masse terrestre isolée, non un promontoire de la Terra Australis. Le grand continent austral reste introuvable dans les zones explorées. La Tasmanie porte aujourd'hui son nom.

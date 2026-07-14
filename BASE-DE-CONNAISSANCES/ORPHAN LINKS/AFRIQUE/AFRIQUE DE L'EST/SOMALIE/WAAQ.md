@@ -1,0 +1,3 @@
+# WAAQ
+
+Dieu du ciel suprême dans les cosmologies cushitiques de la Corne de l'Afrique — Somali, Oromo, Sidamo, Konso, Gedeo, Afar. Aussi transcrit *Waq*, *Waaqa*, *Waaqo*. Créateur de l'univers, gardien de la fertilité, de la pluie, de la paix et de l'harmonie. Associé aux arbres sacrés. Transcendant — réside dans le ciel sans lieu précisément nommé. En somali pré-islamique : *Eebe Waaq* — juge suprême de l'au-delà, assisté de Nidar (punisseur des mauvais). Son nom est encodé dans des dizaines de mots somaliens (*barwaaqo* = abondance, *waaqdhaco* = sacrifice, etc.). Adopté pour désigner Allah après islamisation. Équivalent de Roog (Serer), Ngewo (Mende), Imana (Rwanda).

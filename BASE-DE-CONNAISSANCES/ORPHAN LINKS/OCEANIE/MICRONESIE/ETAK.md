@@ -1,0 +1,3 @@
+# ETAK
+
+Système de navigation carolinien (Micronésie) — radicalement différent de la navigation occidentale. Le navigateur se visualise comme immobile : c'est l'île de départ et l'île de destination qui se "déplacent" autour de lui. Une île de référence latérale ("l'île qui coule") sert de repère pour calculer la progression. Combiné à la mémorisation des levers/couchers d'étoiles, de la houle de fond, des courants, du vol des oiseaux, de la phosphorescence. Permet des navigations de 150-1 000 km sans instruments. Exemple de système de connaissance non-instrumentale sophistiqué développé indépendamment de la science occidentale. Toujours pratiqué par quelques maîtres navigateurs (palu) de Satawal et Puluwat.

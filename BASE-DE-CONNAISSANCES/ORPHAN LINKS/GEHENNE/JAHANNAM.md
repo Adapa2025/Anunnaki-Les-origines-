@@ -1,0 +1,3 @@
+# JAHANNAM
+
+Enfer de la cosmologie islamique — nom directement dérivé de l'hébreu *Gei Ben-Hinnom* (Géhenne). Mentionné plus de 77 fois dans le Coran. Structure : sept portes menant à sept niveaux de châtiment selon la gravité des péchés (Coran 15:43-44). Caractéristiques : feu consumant, eau bouillante, arbre *Zaqqum* aux fruits comme des têtes de démons (Coran 37:62-68). Gardiens : les anges *Zabaniyya* (Coran 74:30 — 19 gardiens). Durée : éternelle pour les mécréants impénitents ; temporaire pour certains pécheurs croyants selon des interprétations. La description coranique hérite directement de la littérature apocalyptique juive intertestamentaire via la Géhenne et ses développements rabbiniques. Terme équivalent dans la tradition : *Nâr* ("feu").

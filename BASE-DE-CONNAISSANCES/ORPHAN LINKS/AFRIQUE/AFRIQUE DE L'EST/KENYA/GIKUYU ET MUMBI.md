@@ -1,0 +1,4 @@
+**Placeholder — ORPHAN LINKS/KENYA**
+**Sujet :** GIKUYU ET MUMBI — Premier couple, ancêtres fondateurs des neuf clans Kikuyu
+**Lié à :** [[LIEUX MYTHIQUES/AFRIQUE/AFRIQUE DE L'EST/KENYA/KIRINYAGA WIKI-NOTES|KIRINYAGA WIKI-NOTES]]
+**Amorce :** Gikuyu est le premier homme créé par Ngai, fondateur de la nation kikuyu. Ngai l'amène au sommet de Kirinyaga pour lui montrer ses terres, puis lui accorde Mumbi comme épouse sous les figuiers sacrés de Mukurwe wa Gathanga. Ensemble ils engendrent neuf filles — ancêtres éponymes des neuf clans fondateurs (Wanjirũ, Wambũi, Njeri, Wanjikũ, Nyambũra, Wairimũ, Waithĩra, Wangarĩ, Wangũi). Cosmogonie matricielle — l'humanité kikuyu descend de neuf mères. Dans une version alternative, Ngai fait sortir Gikuyu, les Maasai et les Kamba de son genou gonflé. Sources : Wikipedia EN (Ngai) ; Google Arts & Culture (Kikuyu Creation Story).

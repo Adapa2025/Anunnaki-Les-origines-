@@ -1,0 +1,3 @@
+# ZECHARIA SITCHIN
+
+Zecharia Sitchin (1920-2010) — auteur azerbaïdjanais-américain, autodidacte en langues sémitiques anciennes. Auteur de la série *Earth Chronicles* (12 volumes, 1976-2007) développant la thèse que les Anunnaki sumériens sont des extraterrestres venus de la planète Nibiru. Œuvres principales pour le corpus ADAPA : *The 12th Planet* (1976), *The Stairway to Heaven* (1980, Baalbek), *The Wars of Gods and Men* (1985). Sa lecture des textes sumériens est contestée par les assyriologues professionnels (Michael Heiser, notamment). Documenté dans la BdC comme système interprétatif, pas comme consensus académique.

@@ -1,0 +1,3 @@
+# NE-NO-KUNI
+
+Placeholder — voir fiche complète : [[LIEUX MYTHIQUES/JAPON/NE-NO-KUNI WIKI-NOTES|NE-NO-KUNI WIKI-NOTES]]

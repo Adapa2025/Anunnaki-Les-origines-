@@ -1,0 +1,3 @@
+# SUSANOO
+
+Susanoo no Mikoto (須佐之男命), "Homme Impétueux" — divinité des tempêtes et des mers. Né de la purification d'Izanagi (nez lavé). Refuse de gouverner les mers, pleure sans cesse, est banni de [[TAKAMAGAHARA WIKI-NOTES|Takamagahara]] par Izanagi. Monte rendre visite à Amaterasu avant son départ, provoque son retrait dans la grotte Ama-no-Iwato. Descend ensuite dans la province d'Izumo puis dans [[NE-NO-KUNI WIKI-NOTES|Ne-no-Kuni]] dont il devient souverain. Impose des épreuves à Ōkuninushi qu'il reconnaît finalement comme successeur pour gouverner le monde terrestre. Sources : *Kojiki* (712), *Nihon Shoki* (720).

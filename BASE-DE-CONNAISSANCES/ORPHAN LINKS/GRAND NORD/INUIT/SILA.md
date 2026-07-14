@@ -1,0 +1,3 @@
+# SILA
+
+Concept inuit central — souffle cosmique universel qui imprègne tout l'univers. *Sila* est simultanément : l'air, le vent, le souffle, l'intelligence, la conscience cosmique. Tout être vivant participe de *sila* — humains, animaux, plantes. Les *anirnitt* (esprits de tous les êtres vivants) sont des expressions de *sila*. Ce n'est pas un dieu personnel mais un principe cosmique impersonnel. Connexion ADAPA : Sila comme conscience cosmique impersonnelle = même archétype que le Brahman védantique (conscience universelle), le Tao taoïste (principe impersonnel sous-jacent à tout), le Pneuma grec (souffle cosmique). La cosmologie inuit place ce principe au niveau le plus élevé — au-dessus de toute personnalité divine.

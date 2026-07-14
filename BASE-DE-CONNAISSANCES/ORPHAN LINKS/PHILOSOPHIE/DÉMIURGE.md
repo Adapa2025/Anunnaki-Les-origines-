@@ -1,0 +1,7 @@
+# DÉMIURGE
+
+> Placeholder ORPHAN LINKS — à construire.
+
+**Contexte de la première mention :** [[YHWH Analyse]] / [[LA SOURCE WIKI-NOTES]] — gnose et néoplatonisme.
+
+*Démiurge* (Δημιουργός, *Dēmiourgos*, « l'Artisan », « celui qui œuvre pour le peuple »), terme platonicien (*Timée*, ~360 av. J.-C.) désignant l'artisan divin qui façonne le cosmos sensible en regardant les Idées éternelles. Le Démiurge platonicien est bon et œuvre selon le modèle des Idées. **Inversion gnostique** (IIᵉ siècle ap. J.-C.) : dans la gnose sethienne et valentinienne, le Démiurge est l'artisan ignorant qui crée le monde matériel par méconnaissance ou par excès orgueilleux, sans connaître la véritable Source ([[BYTHOS|Bythos]], Monade, Père inconnaissable, [[LA SOURCE WIKI-NOTES|LA SOURCE]]). Ce Démiurge est généralement identifié au **YHWH biblique** dans les textes gnostiques — d'où ses noms péjoratifs : [[YALDABAOTH|Yaldabaoth]] (« enfant du chaos »), Saklas (« sot »), Samael (« dieu aveugle »). Sources gnostiques primaires : *Apocryphon de Jean* (NHC II,1 ; III,1 ; IV,1 ; BG 8502,2), *Hypostase des Archontes* (NHC II,4), *Sur l'origine du monde* (NHC II,5), *Traité tripartite* (NHC I,5). Sources patristiques hostiles : Irénée *Adversus Haereses*, Tertullien, Hippolyte, Épiphane. Cf. aussi le néoplatonisme tardif où le Démiurge garde son sens platonicien positif. Voir [[YHWH Analyse]] et [[LA SOURCE WIKI-NOTES]] section *Distinctions critiques — La Source n'est pas le Démiurge*.

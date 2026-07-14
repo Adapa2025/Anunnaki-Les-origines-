@@ -1,0 +1,3 @@
+# AINURAKKUR (Ae-oina Kamui)
+
+Homme divin envoyé par Tuntu sur Terre pour enseigner aux premiers Aïnous la chasse, la cuisine et les arts domestiques. Aussi nommé Ae-oina Kamui. Père et défenseur de l'humanité dans la tradition aïnoue. Connexion ADAPA capitale : civilisateur divin envoyé d'en haut pour transmettre les savoirs fondamentaux aux humains = Oannes/Apkallu mésopotamien (Oannes sort de la mer pour enseigner les arts, les lois, l'agriculture à Babylone), Kenos selknam (envoyé par Temáukel pour organiser la Terre), Ainurakkur est l'une des occurrences les plus claires de l'archétype du civilisateur divin mandaté dans le corpus ADAPA — ici documenté dans une tradition linguistiquement isolée, en dehors de tout contact connu avec le corpus mésopotamien.

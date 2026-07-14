@@ -1,0 +1,3 @@
+# COLONNES D'HÉRACLÈS
+
+Nom antique des rochers de part et d'autre du détroit de Gibraltar — le rocher de Gibraltar (côté européen) et le Jebel Musa ou Ceuta (côté africain). Considérées dans l'Antiquité comme les limites du monde connu — au-delà, l'océan Atlantique inconnu. Platon situe l'Atlantide "au-delà des Colonnes d'Héraclès" — c'est-à-dire dans l'Atlantique. Cette localisation a guidé la plupart des recherches modernes. Identification mythologique : Héraclès (Hercule) aurait planté ces colonnes lors de son 10e travail (le bœuf de Géryon) pour marquer la limite du monde habitable. Equvalent grec de la Terra Australis comme frontière du connu.

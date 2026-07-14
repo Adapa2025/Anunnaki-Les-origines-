@@ -1,0 +1,3 @@
+# HAIN
+
+Grande cérémonie d'initiation masculine des Selknam (Terre de Feu) — la manifestation culturelle la plus élaborée de ce peuple. Les hommes se masquaient et se peignaient le corps pour incarner les esprits célestes et souterrains (Xalpen et ses Soorts) devant les femmes et les jeunes initiés. Imposait une domination masculine ritualisée fondée sur la cosmologie. Documenté par Martin Gusinde et Anne Chapman. La dernière cérémonie complète a été filmée par Chapman dans les années 1970 — archive ethnographique exceptionnelle d'une tradition en voie d'extinction. Les masques évoquaient le Koshmenk (esprit du ciel). Connexion : même structure rituelle que le rite Bwiti gabonais (iboga), le rituel d'initiation San (n/om), les Mystères d'Éleusis grecs.

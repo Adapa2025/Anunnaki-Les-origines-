@@ -1,0 +1,3 @@
+# NZAME
+
+Dieu créateur suprême de la cosmologie Fang — trinité divine composée de Nzame (force/ciel/transcendance), Mebere (autorité/leadership) et Nkwa (beauté/féminité). Aussi appelé *Mebege* ou *Mebe'e*. Principe abstrait sans forme physique ni demeure fixe documentée — Nzame représente "le dieu des cieux" mais le ciel Fang n'est pas un lieu nommé et structuré comme l'Olympe grec ou l'Asgard nordique. A créé l'univers, les humains (premier homme Fam — détruit pour orgueil ; second homme Sekume — ancêtre des Fang), les animaux et les plantes. Résidence : les cieux (non localisés précisément dans les sources disponibles).

@@ -1,0 +1,3 @@
+# BAIAME
+
+"Premier Être" ou "Grand Père Ciel" dans les traditions aborigènes du sud-est de l'Australie (NSW, Queensland, Victoria). Il donna sa forme au monde en le "rêvant" — la création comme acte onirique. Baiame est aussi le premier législateur — il établit les règles de la Loi du Dreamtime transmises depuis. Associé à la pluie, à la fécondité et au ciel. Les gravures de Baiame à Milbrodale (NSW) le représentent avec une silhouette gigantesque aux bras étendus — l'une des plus grandes figures rupestres d'Australie. Connexion avec les autres divinités célestes créatrices : Altjira (Aranda), Byamee (variations dialectales), Nurrundere (Adnyamathanha). Figure importante pour comprendre la diversité des traditions du Temps du Rêve à travers le continent.

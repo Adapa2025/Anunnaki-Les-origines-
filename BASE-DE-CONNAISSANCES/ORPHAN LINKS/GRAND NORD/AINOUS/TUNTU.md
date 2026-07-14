@@ -1,0 +1,3 @@
+# TUNTU
+
+Dieu créateur aïnou — son nom signifie "colonne vertébrale". Crée le monde comme un grand océan reposant sur le dos d'une truite gigantesque. Envoie un oiseau-esprit (bergeronnette) pour créer les îles en retournant l'eau. Fabrique les premiers Aïnous à partir de boue (corps), branche de saule (colonne vertébrale) et herbes (cheveux) — depuis, le dos des Aïnous se plie avec l'âge à cause du saule. Réside dans le 6e ciel (le plus haut) jamais seul — tout marche par couple. Envoie Ainurakkur sur Terre comme civilisateur. Connexion ADAPA : dieu créateur qui envoie un émissaire pour enseigner aux humains = Enki envoyant les Apkallu, Temáukel envoyant Kenos, Idjair (Voie lactée) envoyant Wandjina — même structure universelle.

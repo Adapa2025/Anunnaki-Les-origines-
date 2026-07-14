@@ -1,0 +1,3 @@
+# GONDWANA
+
+Supercontinent de l'hémisphère sud qui a existé de ~550 à ~180 millions d'années BP — fragment de la Pangée après sa dislocation. Composé de ce qui est aujourd'hui l'Amérique du Sud, l'Afrique, l'Antarctique, l'Australie, l'Inde, Madagascar et la péninsule arabique. La dérive des continents depuis le Gondwana explique la répartition actuelle des espèces animales et végétales entre ces continents — c'est la réponse réelle au problème que Sclater tentait de résoudre avec la Lémurie. La fragmentation du Gondwana s'est produite sur des dizaines de millions d'années, bien avant l'apparition de toute civilisation humaine. Des micro-continents comme Mauritia (fragment granitique aujourd'hui sous les Mascareignes) sont des témoins géologiques de cette dislocation.

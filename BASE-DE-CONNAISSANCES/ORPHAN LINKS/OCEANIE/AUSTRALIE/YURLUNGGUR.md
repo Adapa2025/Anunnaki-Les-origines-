@@ -1,0 +1,3 @@
+# YURLUNGGUR
+
+Serpent Arc-en-Ciel des Yolŋgu (nord-est Arnhem Land). Central dans le mythe des sœurs Wawilak — deux sœurs créent le pays, s'arrêtent près de son trou d'eau sacré, le réveillent par une souillure (sang menstruel). Yurlunggur les avale avec leurs enfants, puis les régurgite après avoir reconnu leur appartenance à sa même moitié (loi de l'exogamie). Leur danse provoque la mousson. Encode à la fois les lois matrimoniales (interdit de l'inceste, exogamie entre moitiés) et les cycles saisonniers (mousson). Équivalent de Yingarna (Arnhem Land central), Ngalyod, Ungud (Kimberley) — noms régionaux d'un même archétype : serpent aquatique primordial, gardien de la Loi, régulateur des pluies.

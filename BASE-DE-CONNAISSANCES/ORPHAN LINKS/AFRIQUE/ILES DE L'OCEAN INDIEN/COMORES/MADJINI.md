@@ -1,0 +1,3 @@
+# MADJINI
+
+Esprits de la cosmologie comorienne — catégorie syncrétique fusionnant les djinns islamiques (*al-jinn* du Coran) et les esprits ancestraux bantoues. Habitent l'Ulimwengu wa Madjini (monde invisible), structurellement inversé par rapport au monde physique. Certains sont bienveillants, d'autres malveillants, d'autres neutres selon les circonstances. Peuvent causer maladies, malheurs ou protéger les familles avec lesquelles ils ont établi une alliance. Les madjini comoriens pratiquent eux-mêmes l'islam — spécificité locale. Singulier : *djini*. Sous-catégorie sauvage : *scia* (brousse).

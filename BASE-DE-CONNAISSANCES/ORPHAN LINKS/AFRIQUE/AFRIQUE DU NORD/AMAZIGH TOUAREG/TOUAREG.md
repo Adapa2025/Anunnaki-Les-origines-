@@ -1,0 +1,3 @@
+# TOUAREG
+
+Peuple Amazigh nomade du Sahara — aussi appelés *Imuhar*, *Imajaghen*, *Imazighen* du désert. Présents au Niger, Mali, Algérie, Libye, Burkina Faso. Langue : Tamashek/Tamajaq (alphabet Tifinagh, gardé par les femmes). Société matrilinéaire — héritage et affiliation clanique transmis par la mère. Gardiens des routes caravanières du Sahara jusqu'au XXe siècle. Seul peuple où l'homme se voile (tagelmust indigo — protection contre les Kel Asuf et signe de virilité). Les femmes ne se voilent pas. Surnommés "les hommes bleus" pour leur peau teintée par l'indigo du voile. Islamisation partielle depuis le XVIe siècle — cosmologie pré-islamique persistante.

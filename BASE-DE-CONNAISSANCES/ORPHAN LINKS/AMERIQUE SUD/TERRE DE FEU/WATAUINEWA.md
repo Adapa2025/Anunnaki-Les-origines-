@@ -1,0 +1,3 @@
+# WATAUINEWA
+
+Être suprême des Yamana (Yagán) — peuple du canal de Beagle et du Cap Horn, les humains les plus australs du monde. *Watauinewa* = "l'Ancien Éternel" ou "Celui qui est toujours là". Créateur de toutes choses, non anthropomorphe, distant, sans culte direct. Même archétype que Temáukel Selknam — principe premier transcendant qui ne s'implique pas directement. Les Yamana vivaient à ~1 000 km de l'Antarctique — s'il existait une mémoire de présences venant du grand sud, ils seraient parmi les premiers à en avoir été témoins. Dernière chamane Yamana : Cristina Calderón (née 1928) — dernière locutrice native du yagán.

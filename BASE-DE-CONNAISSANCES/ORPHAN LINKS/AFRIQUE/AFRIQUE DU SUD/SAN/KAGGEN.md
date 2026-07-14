@@ -1,0 +1,4 @@
+**Placeholder — ORPHAN LINKS/SAN**
+**Sujet :** KAGGEN — Dieu-Mante trickster, créateur de l'éland, figure divine principale des ǀXam San
+**Lié à :** [[LIEUX MYTHIQUES/AFRIQUE/AFRIQUE DU SUD/SAN/KHWA MONDE DES ESPRITS WIKI-NOTES|KHWA MONDE DES ESPRITS WIKI-NOTES]]
+**Amorce :** Kaggen (//Kaggen, ǀXam) est le dieu trickster principal des San du Cap — prend la forme d'une mante religieuse, créateur de l'éland (son animal favori). Se transforme en éland, oiseau, lézard. Vit au bord de l'eau. Ses sandales peuvent devenir des élands. Trickster cosmique — ses actes créateurs et désordonnés *engendrent* simultanément l'ordre et le chaos. Parallèle structurel avec Ogo/Yurugu dogon et Loki nordique. Documenté dans la Bleek & Lloyd Collection (1870s). Sources : Lewis-Williams, *The Mind in the Cave* (2002).

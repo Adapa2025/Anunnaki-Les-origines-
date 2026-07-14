@@ -1,0 +1,4 @@
+**Placeholder — ORPHAN LINKS/MADAGASCAR**
+**Sujet :** VAZIMBA — Premiers habitants mythiques de Madagascar, ancêtres primordiaux
+**Lié à :** [[LIEUX MYTHIQUES/AFRIQUE/ILES DE L'OCEAN INDIEN/MADAGASCAR/TANINDRAZANA WIKI-NOTES|TANINDRAZANA WIKI-NOTES]]
+**Amorce :** Les Vazimba sont les habitants mythiques originels de Madagascar — peuple de petite stature (possiblement pygmée, venu d'Indonésie ~350 av. J.-C.). Certains Malgaches croient qu'ils vivent encore dans les forêts profondes. Les rois Merina revendiquent une ascendance Vazimba via la reine Rafohy, mère d'Andriamanelo. Andrianerinerina (fils de Zanahary) joue avec les Vazimba dans le mythe fondateur. Tombeaux et lieux de pouvoir Vazimba sont marqués par des fady stricts. Analogue aux Menehune hawaïens. Sources : Wikipedia EN (Vazimba) ; WildMadagascar.org.

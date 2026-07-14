@@ -1,0 +1,3 @@
+# FUNDI WA MADJINI
+
+"Maître des madjini" dans la cosmologie comorienne — spécialiste rituel intermédiaire entre le monde visible et l'Ulimwengu wa Madjini. Rôle thérapeutique : diagnostiquer les maladies et malheurs causés par un madjini, identifier l'esprit concerné, comprendre ses exigences (*haja*), et organiser la satisfaction de ces exigences pour restaurer l'équilibre. Logique de négociation et de diplomatie, non d'exorcisme. Équivalent fonctionnel du *n'anga* tsonga, du *saltigue* serer, du *yaal pangool* serer, du *babalawo* yoruba — tous intermédiaires institutionnels entre vivants et esprits.

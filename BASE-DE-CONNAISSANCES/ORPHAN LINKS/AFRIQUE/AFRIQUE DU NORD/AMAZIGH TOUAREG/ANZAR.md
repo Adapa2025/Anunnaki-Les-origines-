@@ -1,0 +1,3 @@
+# ANZAR
+
+Dieu de la pluie dans la cosmologie Amazigh (Berbères du Maghreb et du Sahara). Divinité masculine du ciel et de l'eau — son mariage avec la terre (ou une femme mortelle dans certaines versions) déclenche la pluie. Lors des sécheresses, des rituels collectifs invoquent Anzar — notamment la cérémonie *Tislit n-Unzar* ("la mariée d'Anzar") où une jeune fille est symboliquement offerte au dieu de la pluie. Correspond fonctionnellement à Waaqa (Oromo/Somali) et Ngai (Kikuyu/Maasai) comme dieu créateur et donneur de pluie. Résidence : le ciel, sans lieu précisément nommé dans les sources disponibles.
